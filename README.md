@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[从无功不受禄说起](https://github.com/Hongyu91/cecjy/issues/1341#issue-753274076)
+
+[左翼社会主义者们的八大共产流氓手法](https://github.com/Hongyu91/cecjy/issues/1342#issue-753276766)
+
+[舞蹈女教师翟子慧在北京被枉判二年半](https://github.com/Hongyu91/cecjy/issues/1343#issue-753278014)
+
 [《指环王》演绎了什么？](https://github.com/Hongyu91/cecjy/issues/1336#issue-752865817)
 
 [皮尤研究中心：中国宗教信仰限制全球最严重](https://github.com/Hongyu91/cecjy/issues/1337#issue-752866165)
@@ -40,12 +46,6 @@
 [澳洲布里斯班市民众支持法轮功](https://github.com/Hongyu91/cecjy/issues/1333#issue-752622640)
 
 [大学俄语系主任与雷达设计师遭受的种种迫害](https://github.com/Hongyu91/cecjy/issues/1334#issue-752624178)
-
-[信仰永存 暴政必败](https://github.com/Hongyu91/cecjy/issues/1327#issue-752073603)
-
-[从美国大选看共产主义炒作的“平等”](https://github.com/Hongyu91/cecjy/issues/1328#issue-752075713)
-
-[致中共公检法：守住仅存良知　避免走入绝境](https://github.com/Hongyu91/cecjy/issues/1329#issue-752076819)
 
 ### 主页选文（点文字阅读）
 
