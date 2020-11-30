@@ -89,11 +89,11 @@
 
 ### 每日图片
 
-![2020-5-9-taipei-513_03](https://user-images.githubusercontent.com/61768866/100536815-0fe65500-325e-11eb-82ac-009584fe4d26.jpg)
+![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/100585977-64a2d200-3329-11eb-9a76-8b72aec1697f.jpg)
 
 ### 每日视频
 
-### 点击观看：[ 薇羽看世間 20201128](https://www.zhenshi.cf/#/video/OGK9aIKD9XE) （点三角形箭头播放）
+### 点击观看：[天亮时分](https://www.zhenshi.cf/#/video/Og1gm8fZAcQ) （点三角形箭头播放）
 
 ### 主页視频（点文字观看）
 
