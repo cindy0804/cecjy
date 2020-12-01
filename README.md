@@ -6,7 +6,7 @@
 
 ### 三退保命弃中共，善待大法迎光明。
 
-![浊世清莲](https://user-images.githubusercontent.com/61768866/99250865-5774e600-2847-11eb-8f26-9fab8ed0a494.jpg)
+(![99251](https://user-images.githubusercontent.com/61768866/100734428-a2c3f280-340a-11eb-8b35-a23e3402aa61.jpg))
 ![zxtu1](https://user-images.githubusercontent.com/61768866/97973942-d4dd3700-1e01-11eb-8ba4-2c24bf95e5e5.jpg)
 
  本站网址二维码图片手机可下载，电脑可图片另存文件夹保存。
