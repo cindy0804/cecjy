@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[全球建构堡垒　遏止中共渗透](https://github.com/Hongyu91/cecjy/issues/1346#issue-754134418)
+
+[世界报：法国议员关注中国器官移植来源问题](https://github.com/Hongyu91/cecjy/issues/1347#issue-754137328)
+
+[合肥市肥东县康启惠被非法庭审　真相震撼法庭](https://github.com/Hongyu91/cecjy/issues/1348#issue-754141800)
+
 [从无功不受禄说起](https://github.com/Hongyu91/cecjy/issues/1341#issue-753274076)
 
 [左翼社会主义者们的八大共产流氓手法](https://github.com/Hongyu91/cecjy/issues/1342#issue-753276766)
@@ -40,12 +46,6 @@
 [皮尤研究中心：中国宗教信仰限制全球最严重](https://github.com/Hongyu91/cecjy/issues/1337#issue-752866165)
 
 [世人明真相得福报小故事](https://github.com/Hongyu91/cecjy/issues/1338#issue-752866446)
-
-[朱利安尼在宾州听证会上的发言](https://github.com/Hongyu91/cecjy/issues/1332#issue-752621807)
-
-[澳洲布里斯班市民众支持法轮功](https://github.com/Hongyu91/cecjy/issues/1333#issue-752622640)
-
-[大学俄语系主任与雷达设计师遭受的种种迫害](https://github.com/Hongyu91/cecjy/issues/1334#issue-752624178)
 
 ### 主页选文（点文字阅读）
 
