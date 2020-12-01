@@ -89,16 +89,17 @@
 
 ### 每日图片
 
-![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/100585977-64a2d200-3329-11eb-9a76-8b72aec1697f.jpg)
+![sptu5](https://user-images.githubusercontent.com/61768866/100710178-4cdf5280-33ea-11eb-9377-4bab2ece998e.png)
 
 ### 每日视频
 
-### 点击观看：[天亮时分](https://www.zhenshi.cf/#/video/Og1gm8fZAcQ) （点三角形箭头播放）
+### 点击观看：[【电影】小小羊儿要回家](https://www.zhenshi.cf/#/video/6eMzuZb97w8) （点三角形箭头播放）
 
 ### 主页視频（点文字观看）
 
 [電影：《為你而來》](https://www.zhenshi.cf/#/video/aoRIdbCkBUc) |
 [【永恒的五十分钟】](https://www.zhenshi.cf/#/video/ebKBaGf836E) |
+[【电影】小小羊儿要回家](https://www.zhenshi.cf/#/video/6eMzuZb97w8) |
 [短片《路遇》](https://www.zhenshi.cf/#/video/5oHScSedNo0)
 
 # 明慧周报：中国版（第八二五期）
