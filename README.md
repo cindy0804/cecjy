@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[回首来时路　修炼登归途](https://github.com/Hongyu91/cecjy/issues/1351#issue-755014726)
+
+[美国突击检查中国赴美人员党员身份](https://github.com/Hongyu91/cecjy/issues/1352#issue-755017642)
+
+[共产伎俩如何在美国花样翻新](https://github.com/Hongyu91/cecjy/issues/1353#issue-755022403)
+
 [全球建构堡垒　遏止中共渗透](https://github.com/Hongyu91/cecjy/issues/1346#issue-754134418)
 
 [世界报：法国议员关注中国器官移植来源问题](https://github.com/Hongyu91/cecjy/issues/1347#issue-754137328)
@@ -41,16 +47,10 @@
 
 [舞蹈女教师翟子慧在北京被枉判二年半](https://github.com/Hongyu91/cecjy/issues/1343#issue-753278014)
 
-[《指环王》演绎了什么？](https://github.com/Hongyu91/cecjy/issues/1336#issue-752865817)
-
-[皮尤研究中心：中国宗教信仰限制全球最严重](https://github.com/Hongyu91/cecjy/issues/1337#issue-752866165)
-
-[世人明真相得福报小故事](https://github.com/Hongyu91/cecjy/issues/1338#issue-752866446)
-
 ### 主页选文（点文字阅读）
 
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
-[大学俄语系主任与雷达设计师遭受的种种迫害](https://github.com/Hongyu91/cecjy/issues/1334#issue-752624178) |
+[共产伎俩如何在美国花样翻新](https://github.com/Hongyu91/cecjy/issues/1353#issue-755022403) |
 [从美国大选看共产主义炒作的“平等”](https://github.com/Hongyu91/cecjy/issues/1328#issue-752075713)
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
