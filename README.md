@@ -89,11 +89,11 @@
 
 ### 每日图片
 
-![sptu5](https://user-images.githubusercontent.com/61768866/100710178-4cdf5280-33ea-11eb-9377-4bab2ece998e.png)
+![2020-5-11-2005060343243_01--ss](https://user-images.githubusercontent.com/61768866/100839865-e886c680-34af-11eb-9ee2-a4a8ac9ae8cf.jpg)
 
 ### 每日视频
 
-### 点击观看：[【电影】小小羊儿要回家](https://www.zhenshi.cf/#/video/6eMzuZb97w8) （点三角形箭头播放）
+### 点击观看：[中共吹哨人餵料CNN：疫情前湖北流感暴增20倍！](https://www.zhenshi.cf/#/video/PNzgatB87Vs) （点三角形箭头播放）
 
 ### 主页視频（点文字观看）
 
