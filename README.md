@@ -97,7 +97,7 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 
-#### 推荐免翻墙下载翻墙软件：（点文字下载）
+#### 推荐下载翻墙软件：（点文字下载）
 
 [自由门7.91版电脑版](https://github.com/Hongyu91/cecjy/files/5470344/fg791r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
@@ -114,7 +114,7 @@
 ![fqcy1](https://user-images.githubusercontent.com/61768866/76378242-f0359680-6387-11ea-9b4b-1523e516dc17.png) 
 ![fqcy12](https://user-images.githubusercontent.com/61768866/76378266-fb88c200-6387-11ea-908a-6a87a1f7d387.png)
 
-#### 推荐免翻墙优质电子书下载
+#### 推荐优质电子书下载
 
 ##### 点文字下载
 
