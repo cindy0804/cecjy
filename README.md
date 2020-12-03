@@ -80,19 +80,6 @@
 
 ![2020-5-10-taiwan-jiayi-513_01--ss](https://user-images.githubusercontent.com/61768866/100953501-af049880-354d-11eb-9fab-8515847dd2c5.jpg)
 
-### 每日视频
-
-### 点击观看：[欺世偽火－揭开天安门自焚伪案的震撼内幕和来龙去脉](https://www.zhenshi.cf/#/video/vAtrBRCGQZc) （点三角形箭头播放）
-
-### 主页視频（点文字观看）
-
-[欺世偽火－揭开天安门自焚伪案的震撼内幕和来龙去脉](https://www.zhenshi.cf/#/video/vAtrBRCGQZc) |
-[電影：《為你而來》](https://www.zhenshi.cf/#/video/aoRIdbCkBUc) |
-[【永恒的五十分钟】](https://www.zhenshi.cf/#/video/ebKBaGf836E)
-
-[【电影】小小羊儿要回家](https://www.zhenshi.cf/#/video/6eMzuZb97w8) |
-[短片《路遇》](https://www.zhenshi.cf/#/video/5oHScSedNo0)
-
 # 明慧周报：中国版（第八二五期）
 
 ![image](https://user-images.githubusercontent.com/61768866/100428445-eea32e80-30ce-11eb-8601-437db29de9f4.png)
