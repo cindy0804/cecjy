@@ -89,14 +89,15 @@
 
 ### 每日图片
 
-![2020-5-11-2005060343243_01--ss](https://user-images.githubusercontent.com/61768866/100839865-e886c680-34af-11eb-9ee2-a4a8ac9ae8cf.jpg)
+![2020-5-10-taiwan-jiayi-513_01--ss](https://user-images.githubusercontent.com/61768866/100953501-af049880-354d-11eb-9fab-8515847dd2c5.jpg)
 
 ### 每日视频
 
-### 点击观看：[中共吹哨人餵料CNN：疫情前湖北流感暴增20倍！](https://www.zhenshi.cf/#/video/PNzgatB87Vs) （点三角形箭头播放）
+### 点击观看：[欺世偽火－揭开天安门自焚伪案的震撼内幕和来龙去脉](https://www.zhenshi.cf/#/video/vAtrBRCGQZc) （点三角形箭头播放）
 
 ### 主页視频（点文字观看）
 
+[欺世偽火－揭开天安门自焚伪案的震撼内幕和来龙去脉](https://www.zhenshi.cf/#/video/vAtrBRCGQZc) |
 [電影：《為你而來》](https://www.zhenshi.cf/#/video/aoRIdbCkBUc) |
 [【永恒的五十分钟】](https://www.zhenshi.cf/#/video/ebKBaGf836E) |
 [【电影】小小羊儿要回家](https://www.zhenshi.cf/#/video/6eMzuZb97w8) |
