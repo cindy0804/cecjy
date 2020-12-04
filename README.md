@@ -19,6 +19,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[湖北许章清一家三人被非法判刑七年多](https://github.com/Hongyu91/cecjy/issues/1363#issue-756922560)
+
+[川普演讲：选举诚信关乎几代人誓死捍卫的权利](https://github.com/Hongyu91/cecjy/issues/1364#issue-756925422)
+
+[同事都说丈夫“命真大” ](https://github.com/Hongyu91/cecjy/issues/1365#issue-756927184)
+
 [林伍德律师：绝不会让中共占领我们的家园](https://github.com/Hongyu91/cecjy/issues/1357#issue-755956413)
 
 [大陆民众看大选：为啥“川粉”这么多？](https://github.com/Hongyu91/cecjy/issues/1358#issue-755958690)
@@ -30,12 +36,6 @@
 [美国突击检查中国赴美人员党员身份](https://github.com/Hongyu91/cecjy/issues/1352#issue-755017642)
 
 [共产伎俩如何在美国花样翻新](https://github.com/Hongyu91/cecjy/issues/1353#issue-755022403)
-
-[全球建构堡垒　遏止中共渗透](https://github.com/Hongyu91/cecjy/issues/1346#issue-754134418)
-
-[世界报：法国议员关注中国器官移植来源问题](https://github.com/Hongyu91/cecjy/issues/1347#issue-754137328)
-
-[合肥市肥东县康启惠被非法庭审　真相震撼法庭](https://github.com/Hongyu91/cecjy/issues/1348#issue-754141800)
 
 ### 主页选文（点文字阅读）
 
