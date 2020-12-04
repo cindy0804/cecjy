@@ -81,12 +81,12 @@
 
 ![sptu4](https://user-images.githubusercontent.com/61768866/101142271-58cc4e00-3650-11eb-8693-47fcae45b8fb.png)
 
-# 明慧周报：中国版（第八二五期）
+# 明慧周报：中国版（第八二六期）
 
-![image](https://user-images.githubusercontent.com/61768866/100428445-eea32e80-30ce-11eb-8601-437db29de9f4.png)
-![image](https://user-images.githubusercontent.com/61768866/100428490-fd89e100-30ce-11eb-9f55-e83ef58bdd91.png)
-![image](https://user-images.githubusercontent.com/61768866/100428537-0bd7fd00-30cf-11eb-849c-fd65a83c154f.png)
-![image](https://user-images.githubusercontent.com/61768866/100428574-18f4ec00-30cf-11eb-8fd6-38627c68c1bc.png)
+![image](https://user-images.githubusercontent.com/61768866/101143639-23286480-3652-11eb-8158-f89bec39273e.png)
+![image](https://user-images.githubusercontent.com/61768866/101143691-350a0780-3652-11eb-8ceb-b0d45525d468.png)
+![image](https://user-images.githubusercontent.com/61768866/101143719-418e6000-3652-11eb-8fda-d1315a4ebc8d.png)
+![image](https://user-images.githubusercontent.com/61768866/101143795-5bc83e00-3652-11eb-89ae-e63dabfd6733.png)
 
 #### 法轮功基本真相贴图 
 
