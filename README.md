@@ -79,7 +79,7 @@
 
 ### 每日图片
 
-![2020-5-10-taiwan-jiayi-513_01--ss](https://user-images.githubusercontent.com/61768866/100953501-af049880-354d-11eb-9fab-8515847dd2c5.jpg)
+![sptu4](https://user-images.githubusercontent.com/61768866/101142271-58cc4e00-3650-11eb-8693-47fcae45b8fb.png)
 
 # 明慧周报：中国版（第八二五期）
 
