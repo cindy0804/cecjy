@@ -79,7 +79,8 @@
 
 ### 每日图片
 
-![sptu4](https://user-images.githubusercontent.com/61768866/101142271-58cc4e00-3650-11eb-8693-47fcae45b8fb.png)
+![sptu0](https://user-images.githubusercontent.com/61768866/101232808-e3638a80-36ee-11eb-8a34-80ed42991360.png)
+![zxtu1](https://user-images.githubusercontent.com/61768866/101232799-d5ae0500-36ee-11eb-836f-e11132d1e6e8.jpg)
 
 # 明慧周报：中国版（第八二六期）
 
