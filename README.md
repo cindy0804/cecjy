@@ -11,6 +11,7 @@
 #### 国内用户下载翻墙软件到大纪元退党网站三退
 
 [手机版无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip) |
+[自由门7.91版电脑版](https://github.com/Hongyu91/cecjy/files/5470344/fg791r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip)
 
 #### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
