@@ -19,6 +19,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281)
+
+[郭保军绝食抗议迫害一年余　现生命危急](https://github.com/Hongyu91/cecjy/issues/1369#issue-757623225)
+
+[善恶的选择](https://github.com/Hongyu91/cecjy/issues/1370#issue-757625446)
+
 [湖北许章清一家三人被非法判刑七年多](https://github.com/Hongyu91/cecjy/issues/1363#issue-756922560)
 
 [川普演讲：选举诚信关乎几代人誓死捍卫的权利](https://github.com/Hongyu91/cecjy/issues/1364#issue-756925422)
@@ -31,16 +37,10 @@
 
 [北京杨春秀：“我好了！是大法救了我！” ](https://github.com/Hongyu91/cecjy/issues/1359#issue-755960745)
 
-[回首来时路　修炼登归途](https://github.com/Hongyu91/cecjy/issues/1351#issue-755014726)
-
-[美国突击检查中国赴美人员党员身份](https://github.com/Hongyu91/cecjy/issues/1352#issue-755017642)
-
-[共产伎俩如何在美国花样翻新](https://github.com/Hongyu91/cecjy/issues/1353#issue-755022403)
-
 ### 主页选文（点文字阅读）
 
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
-[共产伎俩如何在美国花样翻新](https://github.com/Hongyu91/cecjy/issues/1353#issue-755022403) |
+[美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281) |
 [从美国大选看共产主义炒作的“平等”](https://github.com/Hongyu91/cecjy/issues/1328#issue-752075713)
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
