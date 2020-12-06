@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[台湾5400名学员排字　传递九字真言祝福](https://github.com/Hongyu91/cecjy/issues/1372#issue-757871071)
+
+[俩亲人被迫害致死　山东王西爱被秘密枉判入狱](https://github.com/Hongyu91/cecjy/issues/1373#issue-757871500)
+
+[移民旅行都受阻　中共党员路难行](https://github.com/Hongyu91/cecjy/issues/1374#issue-757871843)
+
 [美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281)
 
 [郭保军绝食抗议迫害一年余　现生命危急](https://github.com/Hongyu91/cecjy/issues/1369#issue-757623225)
@@ -32,17 +38,11 @@
 
 [同事都说丈夫“命真大” ](https://github.com/Hongyu91/cecjy/issues/1365#issue-756927184)
 
-[林伍德律师：绝不会让中共占领我们的家园](https://github.com/Hongyu91/cecjy/issues/1357#issue-755956413)
-
-[大陆民众看大选：为啥“川粉”这么多？](https://github.com/Hongyu91/cecjy/issues/1358#issue-755958690)
-
-[北京杨春秀：“我好了！是大法救了我！” ](https://github.com/Hongyu91/cecjy/issues/1359#issue-755960745)
-
 ### 主页选文（点文字阅读）
 
+[台湾5400名学员排字　传递九字真言祝福](https://github.com/Hongyu91/cecjy/issues/1372#issue-757871071) |
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
-[美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281) |
-[从美国大选看共产主义炒作的“平等”](https://github.com/Hongyu91/cecjy/issues/1328#issue-752075713)
+[美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281)
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
