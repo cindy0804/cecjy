@@ -20,7 +20,7 @@
 
 [手机安卓版神州明见TV](https://github.com/Hongyu91/cecjy/files/5652324/TV_2.0.2019102301.zip)
 
-[爱博电视电脑版](https://github.com/Hongyu91/cecjy/files/5652308/Green_iPPOTV.zip)
+[爱博电视电脑版TV](https://github.com/Hongyu91/cecjy/files/5652308/Green_iPPOTV.zip)
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
