@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国国家情报局局长：中共是头号威胁](https://github.com/Hongyu91/cecjy/issues/1376#issue-758252154)
+
+[中国产假选票涌入美国　鲍威尔证实](https://github.com/Hongyu91/cecjy/issues/1377#issue-758255059)
+
+[首位加入中共的美国青年迟到的醒悟](https://github.com/Hongyu91/cecjy/issues/1378#issue-758256845)
+
 [台湾5400名学员排字　传递九字真言祝福](https://github.com/Hongyu91/cecjy/issues/1372#issue-757871071)
 
 [俩亲人被迫害致死　山东王西爱被秘密枉判入狱](https://github.com/Hongyu91/cecjy/issues/1373#issue-757871500)
@@ -31,12 +37,6 @@
 [郭保军绝食抗议迫害一年余　现生命危急](https://github.com/Hongyu91/cecjy/issues/1369#issue-757623225)
 
 [善恶的选择](https://github.com/Hongyu91/cecjy/issues/1370#issue-757625446)
-
-[湖北许章清一家三人被非法判刑七年多](https://github.com/Hongyu91/cecjy/issues/1363#issue-756922560)
-
-[川普演讲：选举诚信关乎几代人誓死捍卫的权利](https://github.com/Hongyu91/cecjy/issues/1364#issue-756925422)
-
-[同事都说丈夫“命真大” ](https://github.com/Hongyu91/cecjy/issues/1365#issue-756927184)
 
 ### 主页选文（点文字阅读）
 
