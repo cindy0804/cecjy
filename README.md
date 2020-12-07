@@ -18,7 +18,7 @@
 
  ##### 特别推荐免费翻墙电视新闻影视软件下载:(直播,点播节目都有,很精彩,建议下载观看)
 
-[神州明见TV](https://github.com/Hongyu91/cecjy/files/5652324/TV_2.0.2019102301.zip)
+[手机安卓版神州明见TV](https://github.com/Hongyu91/cecjy/files/5652324/TV_2.0.2019102301.zip)
 
 [爱博电视电脑版](https://github.com/Hongyu91/cecjy/files/5652308/Green_iPPOTV.zip)
  
