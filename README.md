@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[名单递交28国政府　要求制裁迫害者](https://github.com/Hongyu91/cecjy/issues/1382#issue-759217644)
+
+[欧盟通过《马格尼茨基法案》](https://github.com/Hongyu91/cecjy/issues/1383#issue-759221013)
+
+[美国冻结14名中共人大副委员长资产](https://github.com/Hongyu91/cecjy/issues/1384#issue-759223894)
+
 [美国国家情报局局长：中共是头号威胁](https://github.com/Hongyu91/cecjy/issues/1376#issue-758252154)
 
 [中国产假选票涌入美国　鲍威尔证实](https://github.com/Hongyu91/cecjy/issues/1377#issue-758255059)
@@ -37,12 +43,6 @@
 [俩亲人被迫害致死　山东王西爱被秘密枉判入狱](https://github.com/Hongyu91/cecjy/issues/1373#issue-757871500)
 
 [移民旅行都受阻　中共党员路难行](https://github.com/Hongyu91/cecjy/issues/1374#issue-757871843)
-
-[美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281)
-
-[郭保军绝食抗议迫害一年余　现生命危急](https://github.com/Hongyu91/cecjy/issues/1369#issue-757623225)
-
-[善恶的选择](https://github.com/Hongyu91/cecjy/issues/1370#issue-757625446)
 
 ### 主页选文（点文字阅读）
 
