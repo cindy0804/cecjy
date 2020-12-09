@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[德州在美最高法院起诉四个州选举违宪](https://github.com/Hongyu91/cecjy/issues/1388#issue-760091045)
+
+[强说选票舞弊“没有证据”犹如掩耳盗铃](https://github.com/Hongyu91/cecjy/issues/1389#issue-760092682)
+
+[商品批发部女老板：“我就信她”](https://github.com/Hongyu91/cecjy/issues/1390#issue-760094134)
+
 [名单递交28国政府　要求制裁迫害者](https://github.com/Hongyu91/cecjy/issues/1382#issue-759217644)
 
 [欧盟通过《马格尼茨基法案》](https://github.com/Hongyu91/cecjy/issues/1383#issue-759221013)
@@ -37,12 +43,6 @@
 [中国产假选票涌入美国　鲍威尔证实](https://github.com/Hongyu91/cecjy/issues/1377#issue-758255059)
 
 [首位加入中共的美国青年迟到的醒悟](https://github.com/Hongyu91/cecjy/issues/1378#issue-758256845)
-
-[台湾5400名学员排字　传递九字真言祝福](https://github.com/Hongyu91/cecjy/issues/1372#issue-757871071)
-
-[俩亲人被迫害致死　山东王西爱被秘密枉判入狱](https://github.com/Hongyu91/cecjy/issues/1373#issue-757871500)
-
-[移民旅行都受阻　中共党员路难行](https://github.com/Hongyu91/cecjy/issues/1374#issue-757871843)
 
 ### 主页选文（点文字阅读）
 
