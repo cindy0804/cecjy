@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[35国逾九百政要签名 要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1392#issue-761028098)
+
+[人权恶棍的丧钟](https://github.com/Hongyu91/cecjy/issues/1393#issue-761029946)
+
+[曾被冤狱八年迫害　上海市杜挺再被枉判一年半](https://github.com/Hongyu91/cecjy/issues/1394#issue-761032819)
+
 [德州在美最高法院起诉四个州选举违宪](https://github.com/Hongyu91/cecjy/issues/1388#issue-760091045)
 
 [强说选票舞弊“没有证据”犹如掩耳盗铃](https://github.com/Hongyu91/cecjy/issues/1389#issue-760092682)
@@ -37,12 +43,6 @@
 [欧盟通过《马格尼茨基法案》](https://github.com/Hongyu91/cecjy/issues/1383#issue-759221013)
 
 [美国冻结14名中共人大副委员长资产](https://github.com/Hongyu91/cecjy/issues/1384#issue-759223894)
-
-[美国国家情报局局长：中共是头号威胁](https://github.com/Hongyu91/cecjy/issues/1376#issue-758252154)
-
-[中国产假选票涌入美国　鲍威尔证实](https://github.com/Hongyu91/cecjy/issues/1377#issue-758255059)
-
-[首位加入中共的美国青年迟到的醒悟](https://github.com/Hongyu91/cecjy/issues/1378#issue-758256845)
 
 ### 主页选文（点文字阅读）
 
