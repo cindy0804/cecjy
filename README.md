@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国制裁迫害法轮功的中共官员](https://github.com/Hongyu91/cecjy/issues/1397#issue-761999470)
+
+[世界人权日　全球逾380万人声援法轮功学员](https://github.com/Hongyu91/cecjy/issues/1398#issue-762003189)
+
+[从三个家庭的悲惨遭遇看中共的邪恶至极](https://github.com/Hongyu91/cecjy/issues/1396#issue-761996384)
+
 [35国逾九百政要签名 要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1392#issue-761028098)
 
 [人权恶棍的丧钟](https://github.com/Hongyu91/cecjy/issues/1393#issue-761029946)
@@ -37,12 +43,6 @@
 [强说选票舞弊“没有证据”犹如掩耳盗铃](https://github.com/Hongyu91/cecjy/issues/1389#issue-760092682)
 
 [商品批发部女老板：“我就信她”](https://github.com/Hongyu91/cecjy/issues/1390#issue-760094134)
-
-[名单递交28国政府　要求制裁迫害者](https://github.com/Hongyu91/cecjy/issues/1382#issue-759217644)
-
-[欧盟通过《马格尼茨基法案》](https://github.com/Hongyu91/cecjy/issues/1383#issue-759221013)
-
-[美国冻结14名中共人大副委员长资产](https://github.com/Hongyu91/cecjy/issues/1384#issue-759223894)
 
 ### 主页选文（点文字阅读）
 
