@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[香港举办记者会　吁全球声援制止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1401#issue-763410428)
+
+[澳洲通过新《外交关系法案》　各级政府及民间掀反共呼声](https://github.com/Hongyu91/cecjy/issues/1402#issue-763413427)
+
+[曾遭监狱残酷迫害　长沙市周德元老妈妈又被绑架](https://github.com/Hongyu91/cecjy/issues/1403#issue-763416175)
+
 [美国制裁迫害法轮功的中共官员](https://github.com/Hongyu91/cecjy/issues/1397#issue-761999470)
 
 [世界人权日　全球逾380万人声援法轮功学员](https://github.com/Hongyu91/cecjy/issues/1398#issue-762003189)
@@ -37,12 +43,6 @@
 [人权恶棍的丧钟](https://github.com/Hongyu91/cecjy/issues/1393#issue-761029946)
 
 [曾被冤狱八年迫害　上海市杜挺再被枉判一年半](https://github.com/Hongyu91/cecjy/issues/1394#issue-761032819)
-
-[德州在美最高法院起诉四个州选举违宪](https://github.com/Hongyu91/cecjy/issues/1388#issue-760091045)
-
-[强说选票舞弊“没有证据”犹如掩耳盗铃](https://github.com/Hongyu91/cecjy/issues/1389#issue-760092682)
-
-[商品批发部女老板：“我就信她”](https://github.com/Hongyu91/cecjy/issues/1390#issue-760094134)
 
 ### 主页选文（点文字阅读）
 
