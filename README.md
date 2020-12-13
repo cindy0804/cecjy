@@ -86,7 +86,7 @@
 
 ### 每日图片
 
-![fsf4](https://user-images.githubusercontent.com/61768866/101971275-18318d80-3c6b-11eb-992f-3f3ada9b81d6.jpg)
+![fsf3](https://user-images.githubusercontent.com/61768866/102006566-147e3380-3d5d-11eb-86b4-2118fc1bda8c.jpg)
 
 # 明慧周报：中国版（第八二七期）
 
