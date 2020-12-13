@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[正邪大战正酣　信仰者必再创辉煌](https://github.com/Hongyu91/cecjy/issues/1405#issue-765174643)
+
+[从急需翻墙软件到要推翻中共防火墙](https://github.com/Hongyu91/cecjy/issues/1406#issue-765177013)
+
+[丈夫惨遭酷刑致死　辽宁妇女杨雪在中共迫害中离世](https://github.com/Hongyu91/cecjy/issues/1407#issue-765179357)
+
 [香港举办记者会　吁全球声援制止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1401#issue-763410428)
 
 [澳洲通过新《外交关系法案》　各级政府及民间掀反共呼声](https://github.com/Hongyu91/cecjy/issues/1402#issue-763413427)
@@ -37,12 +43,6 @@
 [世界人权日　全球逾380万人声援法轮功学员](https://github.com/Hongyu91/cecjy/issues/1398#issue-762003189)
 
 [从三个家庭的悲惨遭遇看中共的邪恶至极](https://github.com/Hongyu91/cecjy/issues/1396#issue-761996384)
-
-[35国逾九百政要签名 要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1392#issue-761028098)
-
-[人权恶棍的丧钟](https://github.com/Hongyu91/cecjy/issues/1393#issue-761029946)
-
-[曾被冤狱八年迫害　上海市杜挺再被枉判一年半](https://github.com/Hongyu91/cecjy/issues/1394#issue-761032819)
 
 ### 主页选文（点文字阅读）
 
