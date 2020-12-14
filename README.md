@@ -90,7 +90,7 @@
 
 ### 主页图片
 
-![IMG_20201213_174248_234 1](https://user-images.githubusercontent.com/61768866/102038424-29f96900-3e02-11eb-9407-23b0938bdd7b.jpg)
+![fsf45](https://user-images.githubusercontent.com/61768866/102038640-c0c62580-3e02-11eb-80d6-4861ef3d5bd6.jpg)
 
 # 明慧周报：中国版（第八二七期）
 
