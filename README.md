@@ -88,6 +88,10 @@
 
 ![fsf3](https://user-images.githubusercontent.com/61768866/102006566-147e3380-3d5d-11eb-86b4-2118fc1bda8c.jpg)
 
+### 主页图片
+
+![IMG_20201213_174248_234 1](https://user-images.githubusercontent.com/61768866/102038424-29f96900-3e02-11eb-9407-23b0938bdd7b.jpg)
+
 # 明慧周报：中国版（第八二七期）
 
 ![image](https://user-images.githubusercontent.com/61768866/101876023-b0296b80-3bc6-11eb-970d-ba82e19ad3b6.png)
