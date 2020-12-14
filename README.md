@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[对抗舞弊政变　川普称“继续前行”](https://github.com/Hongyu91/cecjy/issues/1410#issue-766055702)
+
+[一名大法弟子的家属：二十一年的坚守](https://github.com/Hongyu91/cecjy/issues/1411#issue-766061626)
+
+[湖北赤壁市公安局副局长漆建军遭恶报死亡](https://github.com/Hongyu91/cecjy/issues/1412#issue-766064149)
+
 [正邪大战正酣　信仰者必再创辉煌](https://github.com/Hongyu91/cecjy/issues/1405#issue-765174643)
 
 [从急需翻墙软件到要推翻中共防火墙](https://github.com/Hongyu91/cecjy/issues/1406#issue-765177013)
@@ -37,12 +43,6 @@
 [澳洲通过新《外交关系法案》　各级政府及民间掀反共呼声](https://github.com/Hongyu91/cecjy/issues/1402#issue-763413427)
 
 [曾遭监狱残酷迫害　长沙市周德元老妈妈又被绑架](https://github.com/Hongyu91/cecjy/issues/1403#issue-763416175)
-
-[美国制裁迫害法轮功的中共官员](https://github.com/Hongyu91/cecjy/issues/1397#issue-761999470)
-
-[世界人权日　全球逾380万人声援法轮功学员](https://github.com/Hongyu91/cecjy/issues/1398#issue-762003189)
-
-[从三个家庭的悲惨遭遇看中共的邪恶至极](https://github.com/Hongyu91/cecjy/issues/1396#issue-761996384)
 
 ### 主页选文（点文字阅读）
 
