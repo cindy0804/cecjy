@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[外媒：中共党员名单揭示近八万外国机构被渗透](https://github.com/Hongyu91/cecjy/issues/1414#issue-767278724)
+
+[推荐美国朋友阅读《九评共产党》](https://github.com/Hongyu91/cecjy/issues/1415#issue-767280431)
+
+[全家三代沐浴佛光](https://github.com/Hongyu91/cecjy/issues/1416#issue-767282888)
+
 [对抗舞弊政变　川普称“继续前行”](https://github.com/Hongyu91/cecjy/issues/1410#issue-766055702)
 
 [一名大法弟子的家属：二十一年的坚守](https://github.com/Hongyu91/cecjy/issues/1411#issue-766061626)
@@ -37,12 +43,6 @@
 [从急需翻墙软件到要推翻中共防火墙](https://github.com/Hongyu91/cecjy/issues/1406#issue-765177013)
 
 [丈夫惨遭酷刑致死　辽宁妇女杨雪在中共迫害中离世](https://github.com/Hongyu91/cecjy/issues/1407#issue-765179357)
-
-[香港举办记者会　吁全球声援制止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1401#issue-763410428)
-
-[澳洲通过新《外交关系法案》　各级政府及民间掀反共呼声](https://github.com/Hongyu91/cecjy/issues/1402#issue-763413427)
-
-[曾遭监狱残酷迫害　长沙市周德元老妈妈又被绑架](https://github.com/Hongyu91/cecjy/issues/1403#issue-763416175)
 
 ### 主页选文（点文字阅读）
 
