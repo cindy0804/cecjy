@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[世纪之问：难道“主流媒体”都错了？](https://github.com/Hongyu91/cecjy/issues/1420#issue-768592789)
+
+[公安局撤案　广州装饰公司老板黄强生仍被劫持](https://github.com/Hongyu91/cecjy/issues/1421#issue-768595737)
+
+[甘肃泾川县法院刑事庭庭长康会年遭恶报车祸丧命](https://github.com/Hongyu91/cecjy/issues/1422#issue-768597725)
+
 [外媒：中共党员名单揭示近八万外国机构被渗透](https://github.com/Hongyu91/cecjy/issues/1414#issue-767278724)
 
 [推荐美国朋友阅读《九评共产党》](https://github.com/Hongyu91/cecjy/issues/1415#issue-767280431)
@@ -31,12 +37,6 @@
 [一名大法弟子的家属：二十一年的坚守](https://github.com/Hongyu91/cecjy/issues/1411#issue-766061626)
 
 [湖北赤壁市公安局副局长漆建军遭恶报死亡](https://github.com/Hongyu91/cecjy/issues/1412#issue-766064149)
-
-[正邪大战正酣　信仰者必再创辉煌](https://github.com/Hongyu91/cecjy/issues/1405#issue-765174643)
-
-[从急需翻墙软件到要推翻中共防火墙](https://github.com/Hongyu91/cecjy/issues/1406#issue-765177013)
-
-[丈夫惨遭酷刑致死　辽宁妇女杨雪在中共迫害中离世](https://github.com/Hongyu91/cecjy/issues/1407#issue-765179357)
 
 ### 主页选文（点文字阅读）
 
