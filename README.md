@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国参议院听证 揭示惊人舞弊规模](https://github.com/Hongyu91/cecjy/issues/1424#issue-769660450)
+
+[为什么610“清零”人多势众、不敢声张？](https://github.com/Hongyu91/cecjy/issues/1425#issue-769663978)
+
+[大姑姐说：真念“法轮大法好”真管用](https://github.com/Hongyu91/cecjy/issues/1426#issue-769665704)
+
 [世纪之问：难道“主流媒体”都错了？](https://github.com/Hongyu91/cecjy/issues/1420#issue-768592789)
 
 [公安局撤案　广州装饰公司老板黄强生仍被劫持](https://github.com/Hongyu91/cecjy/issues/1421#issue-768595737)
@@ -31,12 +37,6 @@
 [推荐美国朋友阅读《九评共产党》](https://github.com/Hongyu91/cecjy/issues/1415#issue-767280431)
 
 [全家三代沐浴佛光](https://github.com/Hongyu91/cecjy/issues/1416#issue-767282888)
-
-[对抗舞弊政变　川普称“继续前行”](https://github.com/Hongyu91/cecjy/issues/1410#issue-766055702)
-
-[一名大法弟子的家属：二十一年的坚守](https://github.com/Hongyu91/cecjy/issues/1411#issue-766061626)
-
-[湖北赤壁市公安局副局长漆建军遭恶报死亡](https://github.com/Hongyu91/cecjy/issues/1412#issue-766064149)
 
 ### 主页选文（点文字阅读）
 
