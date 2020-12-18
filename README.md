@@ -80,7 +80,7 @@
 
 ### 每日图片
 
-![fsf5](https://user-images.githubusercontent.com/61768866/102458942-edd33c00-407f-11eb-9a84-84457ff5022e.jpg)
+![fsf2](https://user-images.githubusercontent.com/61768866/102587400-baa7b000-4146-11eb-8212-e8ae8dc635c7.jpg)
 
 ### 主页图片
 
