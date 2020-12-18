@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[谁也逃不脱天理的制裁](https://github.com/Hongyu91/cecjy/issues/1443#issue-770672531)
+
+[台湾各界谴责中共　支持川普反共](https://github.com/Hongyu91/cecjy/issues/1444#issue-770674583)
+
+[卡车司机：明大法真相前后](https://github.com/Hongyu91/cecjy/issues/1445#issue-770675717)
+
 [美国参议院听证 揭示惊人舞弊规模](https://github.com/Hongyu91/cecjy/issues/1424#issue-769660450)
 
 [为什么610“清零”人多势众、不敢声张？](https://github.com/Hongyu91/cecjy/issues/1425#issue-769663978)
@@ -31,12 +37,6 @@
 [公安局撤案　广州装饰公司老板黄强生仍被劫持](https://github.com/Hongyu91/cecjy/issues/1421#issue-768595737)
 
 [甘肃泾川县法院刑事庭庭长康会年遭恶报车祸丧命](https://github.com/Hongyu91/cecjy/issues/1422#issue-768597725)
-
-[外媒：中共党员名单揭示近八万外国机构被渗透](https://github.com/Hongyu91/cecjy/issues/1414#issue-767278724)
-
-[推荐美国朋友阅读《九评共产党》](https://github.com/Hongyu91/cecjy/issues/1415#issue-767280431)
-
-[全家三代沐浴佛光](https://github.com/Hongyu91/cecjy/issues/1416#issue-767282888)
 
 ### 主页选文（点文字阅读）
 
