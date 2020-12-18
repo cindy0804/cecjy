@@ -84,7 +84,7 @@
 
 ### 主页图片
 
-![lltk4](https://user-images.githubusercontent.com/61768866/102481777-29c8ca00-409d-11eb-8d99-26d25b1d8469.png)
+![lltk41](https://user-images.githubusercontent.com/61768866/102587863-88e31900-4147-11eb-97cb-4a8789a545a8.png)
 
 # 明慧周报：中国版（第八二七期）
 
