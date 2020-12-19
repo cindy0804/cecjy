@@ -32,7 +32,7 @@
 
 [大姑姐说：真念“法轮大法好”真管用](https://github.com/Hongyu91/cecjy/issues/1426#issue-769665704)
 
-[世纪之问：难道“主流媒体”都错了？](https://github.com/Hongyu91/cecjy/issues/1420#issue-768592789)
+[散文：浴雪洗尘 辞岁迎新](https://github.com/Hongyu91/cecjy/issues/1449#issue-771331871)
 
 [公安局撤案　广州装饰公司老板黄强生仍被劫持](https://github.com/Hongyu91/cecjy/issues/1421#issue-768595737)
 
