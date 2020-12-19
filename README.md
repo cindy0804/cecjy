@@ -15,6 +15,10 @@
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip)
 
 #### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
+
+推荐影视新闻软件下载：[神州明见TV](https://github.com/Hongyu91/cecjy/files/5652324/TV_2.0.2019102301.zip)
+
+提醒：节目很精彩，直播点播都有，无需翻墙即看。软件调整状态时请不要轻易丢弃，以后会越来越好使用。
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
