@@ -86,9 +86,9 @@
 
 ![lltk41](https://user-images.githubusercontent.com/61768866/102587863-88e31900-4147-11eb-97cb-4a8789a545a8.png)
 
-### 每日視頻
+### 每日視頻（点文字访问）
 
-https://user-images.githubusercontent.com/61768866/102679942-d6669100-41ee-11eb-9bab-4870876c90ec.mp4
+[台北週六遊行集會 - 挺川普反舞弊要真相](https://github.com/Hongyu91/cecjy/issues/1448#issue-771295162)
 
 # 明慧周报：中国版（第八二八期）
 
