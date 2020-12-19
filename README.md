@@ -18,7 +18,7 @@
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-### 动态视频（点文字访问）
+### 动态真相视频（点文字访问）
 
 [法輪功 街站被襲](https://github.com/Hongyu91/cecjy/issues/1454#issue-771365293)
 
