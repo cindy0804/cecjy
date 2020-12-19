@@ -18,6 +18,14 @@
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
+### 动态视频（点文字访问）
+
+[法輪功 街站被襲](https://github.com/Hongyu91/cecjy/issues/1454#issue-771365293)
+
+[重磅 35国逾九百政要要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1453#issue-771364577)
+
+[台北週六遊行集會 - 挺川普反舞弊要真相](https://github.com/Hongyu91/cecjy/issues/1448#issue-771295162)
+
 ### 动态真相文章（点文字阅读）
 
 [散文：浴雪洗尘 辞岁迎新](https://github.com/Hongyu91/cecjy/issues/1449#issue-771331871)
@@ -85,10 +93,6 @@
 ### 主页图片
 
 ![lltk41](https://user-images.githubusercontent.com/61768866/102587863-88e31900-4147-11eb-97cb-4a8789a545a8.png)
-
-### 每日視頻（点文字访问）
-
-[台北週六遊行集會 - 挺川普反舞弊要真相](https://github.com/Hongyu91/cecjy/issues/1448#issue-771295162)
 
 # 明慧周报：中国版（第八二八期）
 
