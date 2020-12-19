@@ -22,13 +22,9 @@
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-### 动态真相短视频（点文字访问）
-
-[法輪功 街站被襲](https://github.com/Hongyu91/cecjy/issues/1454#issue-771365293)
+### 每日短视频（点文字访问）
 
 [重磅 35国逾九百政要要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1453#issue-771364577)
-
-[台北週六遊行集會 - 挺川普反舞弊要真相](https://github.com/Hongyu91/cecjy/issues/1448#issue-771295162)
 
 ### 动态真相文章（点文字阅读）
 
