@@ -86,6 +86,10 @@
 
 ![lltk41](https://user-images.githubusercontent.com/61768866/102587863-88e31900-4147-11eb-97cb-4a8789a545a8.png)
 
+### 每日視頻
+
+https://user-images.githubusercontent.com/61768866/102679942-d6669100-41ee-11eb-9bab-4870876c90ec.mp4
+
 # 明慧周报：中国版（第八二八期）
 
 ![image](https://user-images.githubusercontent.com/61768866/102589641-3eaf6700-414a-11eb-9a67-e2fa1ae3bf87.png)
