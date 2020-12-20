@@ -24,7 +24,13 @@
 
 ### 每日短视频（点文字访问）
 
-[重磅 35国逾九百政要要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1453#issue-771364577)
+[台湾老媒体人的心声](https://github.com/Hongyu91/cecjy/issues/1456#issue-771490449)
+
+### 主页视频（点文字访问）
+
+[法轮大法洪传全世界](https://github.com/Hongyu91/cecjy/issues/1455#issue-771490191) |
+[重磅 35国逾九百政要要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1453#issue-771364577) |
+[法輪功 街站被襲](https://github.com/Hongyu91/cecjy/issues/1454#issue-771365293)
 
 ### 动态真相文章（点文字阅读）
 
