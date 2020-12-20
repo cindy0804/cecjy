@@ -34,6 +34,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[两遭冤狱折磨　湖南张亚琴被迫害致死](https://github.com/Hongyu91/cecjy/issues/1458#issue-771535681)
+
+[曾陷冤狱五年　苏州市73岁季桂珍又被枉判三年多](https://github.com/Hongyu91/cecjy/issues/1459#issue-771536152)
+
+[辽宁省东港市龙王庙派出所所长邵天亮被举报](https://github.com/Hongyu91/cecjy/issues/1460#issue-771536731)
+
 [散文：浴雪洗尘 辞岁迎新](https://github.com/Hongyu91/cecjy/issues/1449#issue-771331871)
 
 [朱治和传播真相80岁入冤狱被迫害离世](https://github.com/Hongyu91/cecjy/issues/1450#issue-771332899)
@@ -45,12 +51,6 @@
 [台湾各界谴责中共　支持川普反共](https://github.com/Hongyu91/cecjy/issues/1444#issue-770674583)
 
 [卡车司机：明大法真相前后](https://github.com/Hongyu91/cecjy/issues/1445#issue-770675717)
-
-[美国参议院听证 揭示惊人舞弊规模](https://github.com/Hongyu91/cecjy/issues/1424#issue-769660450)
-
-[为什么610“清零”人多势众、不敢声张？](https://github.com/Hongyu91/cecjy/issues/1425#issue-769663978)
-
-[大姑姐说：真念“法轮大法好”真管用](https://github.com/Hongyu91/cecjy/issues/1426#issue-769665704)
 
 ### 主页选文（点文字阅读）
 
