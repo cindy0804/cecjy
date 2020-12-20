@@ -84,7 +84,7 @@
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
 
-### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
+### 点击：[浏览所有帖文](https://github.com/Hongyu91/cecjy/issues)
 
 ### 每日图片
 
