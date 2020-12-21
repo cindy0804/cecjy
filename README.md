@@ -92,7 +92,7 @@
 
 ### 每日短视频（点文字访问）
 
-[台湾老媒体人的心声](https://github.com/Hongyu91/cecjy/issues/1456#issue-771490449)
+[退黨精選](https://github.com/Hongyu91/cecjy/issues/1463#issue-771804866)
 
 ### 主页短视频（点文字访问）
 
