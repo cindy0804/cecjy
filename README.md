@@ -84,7 +84,7 @@
 
 ### 每日图片
 
-![sptu012](https://user-images.githubusercontent.com/61768866/102703207-ffe2f380-42a6-11eb-98fd-0d69d39d8b17.png)
+![fsf3](https://user-images.githubusercontent.com/61768866/102735116-8ddcde00-437c-11eb-8698-d2f2d926eef4.jpg)
 
 ### 主页图片
 
