@@ -24,6 +24,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[台湾嘉义国际管乐节　法轮功受欢迎](https://github.com/Hongyu91/cecjy/issues/1464#issue-771934179)
+
+[新西兰律师：拒绝中共是每个人的责任](https://github.com/Hongyu91/cecjy/issues/1465#issue-771938475)
+
+[山西汾西县三位法轮功学员被新疆警察非法抄家](https://github.com/Hongyu91/cecjy/issues/1466#issue-771941357)
+
 [两遭冤狱折磨　湖南张亚琴被迫害致死](https://github.com/Hongyu91/cecjy/issues/1458#issue-771535681)
 
 [曾陷冤狱五年　苏州市73岁季桂珍又被枉判三年多](https://github.com/Hongyu91/cecjy/issues/1459#issue-771536152)
@@ -35,12 +41,6 @@
 [朱治和传播真相80岁入冤狱被迫害离世](https://github.com/Hongyu91/cecjy/issues/1450#issue-771332899)
 
 [多名参与迫害法轮功的中共官员被美制裁](https://github.com/Hongyu91/cecjy/issues/1452#issue-771334374)
-
-[谁也逃不脱天理的制裁](https://github.com/Hongyu91/cecjy/issues/1443#issue-770672531)
-
-[台湾各界谴责中共　支持川普反共](https://github.com/Hongyu91/cecjy/issues/1444#issue-770674583)
-
-[卡车司机：明大法真相前后](https://github.com/Hongyu91/cecjy/issues/1445#issue-770675717)
 
 ### 主页选文（点文字阅读）
 
