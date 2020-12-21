@@ -22,16 +22,6 @@
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-### 每日短视频（点文字访问）
-
-[台湾老媒体人的心声](https://github.com/Hongyu91/cecjy/issues/1456#issue-771490449)
-
-### 主页短视频（点文字访问）
-
-[法轮大法洪传全世界](https://github.com/Hongyu91/cecjy/issues/1455#issue-771490191) |
-[重磅 35国逾九百政要要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1453#issue-771364577) |
-[法輪功 街站被襲](https://github.com/Hongyu91/cecjy/issues/1454#issue-771365293)
-
 ### 动态真相文章（点文字阅读）
 
 [两遭冤狱折磨　湖南张亚琴被迫害致死](https://github.com/Hongyu91/cecjy/issues/1458#issue-771535681)
@@ -99,6 +89,16 @@
 ### 主页图片
 
 ![lltk41](https://user-images.githubusercontent.com/61768866/102587863-88e31900-4147-11eb-97cb-4a8789a545a8.png)
+
+### 每日短视频（点文字访问）
+
+[台湾老媒体人的心声](https://github.com/Hongyu91/cecjy/issues/1456#issue-771490449)
+
+### 主页短视频（点文字访问）
+
+[法轮大法洪传全世界](https://github.com/Hongyu91/cecjy/issues/1455#issue-771490191) |
+[重磅 35国逾九百政要要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1453#issue-771364577) |
+[法輪功 街站被襲](https://github.com/Hongyu91/cecjy/issues/1454#issue-771365293)
 
 # 明慧周报：中国版（第八二八期）
 
