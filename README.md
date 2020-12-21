@@ -98,7 +98,7 @@
 
 [法轮大法洪传全世界](https://github.com/Hongyu91/cecjy/issues/1455#issue-771490191) |
 [重磅 35国逾九百政要要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1453#issue-771364577) |
-[法輪功 街站被襲](https://github.com/Hongyu91/cecjy/issues/1454#issue-771365293)
+[美出移民新规　退党激增几十倍](https://github.com/Hongyu91/cecjy/issues/1462#issue-771800082)
 
 # 明慧周报：中国版（第八二八期）
 
