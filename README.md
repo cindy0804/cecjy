@@ -24,6 +24,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[谢师恩　花莲大法弟子恭祝师尊新年好](https://github.com/Hongyu91/cecjy/issues/1468#issue-772727248)
+
+[香港法轮功真相点遭中共恶徒破坏　市民谴责](https://github.com/Hongyu91/cecjy/issues/1469#issue-772733420)
+
+[一个家庭妇女的疑问](https://github.com/Hongyu91/cecjy/issues/1470#issue-772735826)
+
 [台湾嘉义国际管乐节　法轮功受欢迎](https://github.com/Hongyu91/cecjy/issues/1464#issue-771934179)
 
 [新西兰律师：拒绝中共是每个人的责任](https://github.com/Hongyu91/cecjy/issues/1465#issue-771938475)
@@ -36,15 +42,9 @@
 
 [辽宁省东港市龙王庙派出所所长邵天亮被举报](https://github.com/Hongyu91/cecjy/issues/1460#issue-771536731)
 
-[散文：浴雪洗尘 辞岁迎新](https://github.com/Hongyu91/cecjy/issues/1449#issue-771331871)
-
-[朱治和传播真相80岁入冤狱被迫害离世](https://github.com/Hongyu91/cecjy/issues/1450#issue-771332899)
-
-[多名参与迫害法轮功的中共官员被美制裁](https://github.com/Hongyu91/cecjy/issues/1452#issue-771334374)
-
 ### 主页选文（点文字阅读）
 
-[台湾5400名学员排字　传递九字真言祝福](https://github.com/Hongyu91/cecjy/issues/1372#issue-757871071) |
+[香港法轮功真相点遭中共恶徒破坏　市民谴责](https://github.com/Hongyu91/cecjy/issues/1469#issue-772733420) |
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
 [美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281)
 
