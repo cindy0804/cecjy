@@ -22,6 +22,8 @@
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
+#### 点击观看：[嘉市國際管樂節 - 天國樂團帶來驚喜(短視頻）](https://github.com/Hongyu91/cecjy/issues/1471#issue-772763873)
+
 ### 动态真相文章（点文字阅读）
 
 [谢师恩　花莲大法弟子恭祝师尊新年好](https://github.com/Hongyu91/cecjy/issues/1468#issue-772727248)
@@ -89,12 +91,6 @@
 ### 主页图片
 
 ![lltk41](https://user-images.githubusercontent.com/61768866/102587863-88e31900-4147-11eb-97cb-4a8789a545a8.png)
-
-### 主页短视频（点文字访问）
-
-[法轮大法洪传全世界](https://github.com/Hongyu91/cecjy/issues/1455#issue-771490191) |
-[重磅 35国逾九百政要要求中共停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1453#issue-771364577) |
-[美出移民新规　退党激增几十倍](https://github.com/Hongyu91/cecjy/issues/1462#issue-771800082)
 
 # 明慧周报：中国版（第八二八期）
 
