@@ -22,7 +22,7 @@
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-#### 点击观看：[嘉市國際管樂節 - 天國樂團帶來驚喜(短視頻）](https://github.com/Hongyu91/cecjy/issues/1471#issue-772763873)
+点击观看：[嘉市國際管樂節 - 天國樂團帶來驚喜(短視頻）](https://github.com/Hongyu91/cecjy/issues/1471#issue-772763873)
 
 ### 动态真相文章（点文字阅读）
 
