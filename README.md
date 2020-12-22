@@ -84,15 +84,11 @@
 
 ### 每日图片
 
-![fsf3](https://user-images.githubusercontent.com/61768866/102735116-8ddcde00-437c-11eb-8698-d2f2d926eef4.jpg)
+![fsf2](https://user-images.githubusercontent.com/61768866/102862288-d1624580-446b-11eb-8593-a90c979f4253.jpg)
 
 ### 主页图片
 
 ![lltk41](https://user-images.githubusercontent.com/61768866/102587863-88e31900-4147-11eb-97cb-4a8789a545a8.png)
-
-### 每日短视频（点文字访问）
-
-[退黨精選](https://github.com/Hongyu91/cecjy/issues/1463#issue-771804866)
 
 ### 主页短视频（点文字访问）
 
