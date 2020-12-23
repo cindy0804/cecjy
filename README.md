@@ -78,9 +78,9 @@
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
 
-### 点击：[浏览所有帖文](https://github.com/Hongyu91/cecjy/issues)
+### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
-#### 推荐下载翻墙软件：（点文字下载）
+#### 推荐下载翻墙软件（点文字下载）
 
 [自由门7.91版电脑版](https://github.com/Hongyu91/cecjy/files/5470344/fg791r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
@@ -91,9 +91,7 @@
 [真识](https://github.com/Hongyu91/cecjy/files/5614322/zhenshi.zip) |
 [网门](https://github.com/odoor3/oo/blob/master/README.md)
 
-#### 推荐优质电子书下载
-
-##### 点文字下载
+#### 推荐优质电子书下载 （点文字下载）
 
 [法輪大法真相](https://github.com/Hongyu91/cecjy/files/4318121/default.zip) |
 [憶師恩](https://github.com/Hongyu91/cecjy/files/4318160/default.zip) |
