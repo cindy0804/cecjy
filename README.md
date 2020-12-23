@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[从耶利哥城典故说起](https://github.com/Hongyu91/cecjy/issues/1473#issue-773563837)
+
+[76位大连法轮功学员被非法关押在各监狱、看守所](https://github.com/Hongyu91/cecjy/issues/1474#issue-773565131)
+
+[佳木斯市警察入室抢劫、偷换门锁](https://github.com/Hongyu91/cecjy/issues/1475#issue-773566442)
+
 [谢师恩　花莲大法弟子恭祝师尊新年好](https://github.com/Hongyu91/cecjy/issues/1468#issue-772727248)
 
 [香港法轮功真相点遭中共恶徒破坏　市民谴责](https://github.com/Hongyu91/cecjy/issues/1469#issue-772733420)
@@ -39,12 +45,6 @@
 [新西兰律师：拒绝中共是每个人的责任](https://github.com/Hongyu91/cecjy/issues/1465#issue-771938475)
 
 [山西汾西县三位法轮功学员被新疆警察非法抄家](https://github.com/Hongyu91/cecjy/issues/1466#issue-771941357)
-
-[两遭冤狱折磨　湖南张亚琴被迫害致死](https://github.com/Hongyu91/cecjy/issues/1458#issue-771535681)
-
-[曾陷冤狱五年　苏州市73岁季桂珍又被枉判三年多](https://github.com/Hongyu91/cecjy/issues/1459#issue-771536152)
-
-[辽宁省东港市龙王庙派出所所长邵天亮被举报](https://github.com/Hongyu91/cecjy/issues/1460#issue-771536731)
 
 ### 主页选文（点文字阅读）
 
