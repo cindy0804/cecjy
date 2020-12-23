@@ -24,7 +24,7 @@
 
 ### 短视频（点文字观看）
 
-[嘉市國際管樂節 - 天國樂團帶來驚喜](https://github.com/Hongyu91/cecjy/issues/1471#issue-772763873)
+[美出移民新规　退党激增几十倍](https://github.com/Hongyu91/cecjy/issues/1462#issue-771800082)
 
 ### 动态真相文章（点文字阅读）
 
