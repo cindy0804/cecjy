@@ -40,13 +40,7 @@
 
 [“法轮功好，从上面到下面谁都知道”](https://github.com/Hongyu91/cecjy/issues/584#issue-625481014)
 
-[给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061)
-
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586)
-
-[长春王守慧刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
-
-[太原季家五子女蒙难 母亲遭恐吓离世](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545)
 
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
 
