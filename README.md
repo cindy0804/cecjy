@@ -36,12 +36,8 @@
 
 ### 主页选文（点文字阅读）
 
-[法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733)
-
-[“法轮功好，从上面到下面谁都知道”](https://github.com/Hongyu91/cecjy/issues/584#issue-625481014)
-
-[中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586)
-
+[法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
+[中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
@@ -61,7 +57,7 @@
 [真识](https://github.com/Hongyu91/cecjy/files/5614322/zhenshi.zip) |
 [网门](https://github.com/odoor3/oo/blob/master/README.md)
 
-#### 优质电子书下载 （点文字下载）
+#### 下载优质电子书（点文字下载）
 
 [法輪大法真相](https://github.com/Hongyu91/cecjy/files/4318121/default.zip) |
 [九評共產黨](https://github.com/Hongyu91/cecjy/files/4318129/default.zip) |
