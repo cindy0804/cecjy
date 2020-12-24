@@ -40,7 +40,7 @@
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
 
-### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
+#### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
 #### 下载翻墙软件（点文字下载）
 
