@@ -69,7 +69,7 @@ https://tuidang.epochtimes.com/
 
 ##### 提示：电脑用户下载解压后一般能直接阅读电子书，手机用户要下载一个手机阅读器才能阅读电子书
 
-##### 点击下载安卓手机阅读器
+##### 点击下载安卓手机阅读器 (点文字下载）
 
 手機高版本：[Chm Reader X_阅读器1](https://github.com/Hongyu91/cecjy/files/4318231/Chm.Reader.X_.com.zip)
 手機低版本：[Chm Reader X_阅读器2](https://github.com/Hongyu91/cecjy/files/5695939/com.pdagate.chmreader.zip)
