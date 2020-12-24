@@ -23,17 +23,17 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
+
+[沈阳市法轮功学员兰立华遗体被强行火化](https://github.com/Hongyu91/cecjy/issues/1478#issue-774297836)
+
+[二十八年的颅骨炎好了](https://github.com/Hongyu91/cecjy/issues/1479#issue-774299222)
+
 [从耶利哥城典故说起](https://github.com/Hongyu91/cecjy/issues/1473#issue-773563837)
 
 [美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281)
 
 [佳木斯市警察入室抢劫、偷换门锁](https://github.com/Hongyu91/cecjy/issues/1475#issue-773566442)
-
-[一个家庭妇女的疑问](https://github.com/Hongyu91/cecjy/issues/1470#issue-772735826)
-
-[新西兰律师：拒绝中共是每个人的责任](https://github.com/Hongyu91/cecjy/issues/1465#issue-771938475)
-
-[山西汾西县三位法轮功学员被新疆警察非法抄家](https://github.com/Hongyu91/cecjy/issues/1466#issue-771941357)
 
 #### 主页选文（点文字阅读）
 
