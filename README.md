@@ -16,9 +16,9 @@
 
 ##### 这个视频软件节目很精彩，无需翻墙即看。
  
-### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
+##### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-### 动态真相文章（点文字阅读）
+#### 动态真相文章（点文字阅读）
 
 [从耶利哥城典故说起](https://github.com/Hongyu91/cecjy/issues/1473#issue-773563837)
 
@@ -32,7 +32,7 @@
 
 [山西汾西县三位法轮功学员被新疆警察非法抄家](https://github.com/Hongyu91/cecjy/issues/1466#issue-771941357)
 
-### 主页选文（点文字阅读）
+#### 主页选文（点文字阅读）
 
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
@@ -73,6 +73,6 @@
 
 ##### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
-### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
+#### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-### [返回顶部](https://github.com/Hongyu91/cecjy)
+#### [返回顶部](https://github.com/Hongyu91/cecjy)
