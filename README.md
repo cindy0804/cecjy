@@ -10,7 +10,9 @@
 [自由门7.91版电脑版](https://github.com/Hongyu91/cecjy/files/5470344/fg791r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip)
 
-##### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
+##### 大纪元退党网站地址
+
+https://tuidang.epochtimes.com/ 
 
  #### 推荐下载：[手机安卓版《神州明见TV》](https://github.com/Hongyu91/cecjy/files/5652324/TV_2.0.2019102301.zip)
 
@@ -18,7 +20,7 @@
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-#### 动态真相文章（点文字阅读）
+#### 动态文章（点文字阅读）
 
 [从耶利哥城典故说起](https://github.com/Hongyu91/cecjy/issues/1473#issue-773563837)
 
