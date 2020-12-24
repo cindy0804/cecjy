@@ -80,21 +80,24 @@
 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
-#### 推荐下载翻墙软件（点文字下载）
+#### 下载翻墙软件（点文字下载）
 
 [自由门7.91版电脑版](https://github.com/Hongyu91/cecjy/files/5470344/fg791r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
-[爱博电视 电脑版](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [自由门安卓版](https://github.com/Hongyu91/cecjy/files/4315538/fgma.zip) |
-[无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip) |
+[无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip)
+
+#### 下载免翻软件（点文字下载）
+
+[手机安卓版《神州明见TV》](https://github.com/Hongyu91/cecjy/files/5652324/TV_2.0.2019102301.zip) |
+[爱博电视 电脑版](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [希望之声](https://github.com/Hongyu91/cecjy/files/4496222/oHopea.zip) |
 [真识](https://github.com/Hongyu91/cecjy/files/5614322/zhenshi.zip) |
 [网门](https://github.com/odoor3/oo/blob/master/README.md)
 
-#### 推荐优质电子书下载 （点文字下载）
+#### 优质电子书下载 （点文字下载）
 
 [法輪大法真相](https://github.com/Hongyu91/cecjy/files/4318121/default.zip) |
-[憶師恩](https://github.com/Hongyu91/cecjy/files/4318160/default.zip) |
 [九評共產黨](https://github.com/Hongyu91/cecjy/files/4318129/default.zip) |
 [解體黨文化](https://github.com/Hongyu91/cecjy/files/4318136/default.zip) |
 [驚天黑幕](https://github.com/Hongyu91/cecjy/files/4318143/default.zip) |
