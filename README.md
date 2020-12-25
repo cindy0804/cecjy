@@ -39,7 +39,7 @@ https://tuidang.epochtimes.com/
 
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [一个奇特却真实的故事](https://github.com/Hongyu91/cecjy/issues/1483#issue-774693573) |
-[“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-62381122
+[“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-62381122)
 
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
 [美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281) |
