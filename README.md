@@ -23,23 +23,24 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[慈悲传真相　只愿你平安](https://github.com/Hongyu91/cecjy/issues/1480#issue-774668823)
+
+[三退，关键时刻的选择](https://github.com/Hongyu91/cecjy/issues/1481#issue-774673822)
+
+[来自武汉的小故事](https://github.com/Hongyu91/cecjy/issues/1482#issue-774675103)
+
 [川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
 
 [沈阳市法轮功学员兰立华遗体被强行火化](https://github.com/Hongyu91/cecjy/issues/1478#issue-774297836)
 
 [二十八年的颅骨炎好了](https://github.com/Hongyu91/cecjy/issues/1479#issue-774299222)
 
-[从耶利哥城典故说起](https://github.com/Hongyu91/cecjy/issues/1473#issue-773563837)
-
-[美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281)
-
-[佳木斯市警察入室抢劫、偷换门锁](https://github.com/Hongyu91/cecjy/issues/1475#issue-773566442)
-
 #### 主页选文（点文字阅读）
 
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
-[“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
+[“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224) |
+[美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281)
 
 #### 点击阅读 [所有文章](https://github.com/Hongyu91/cecjy/issues)
 
