@@ -23,17 +23,17 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[百名小粉红集体三退 大陆公安“忏悔”](https://github.com/Hongyu91/cecjy/issues/1484#issue-774839011)
+
+[常念“法轮大法好 真善忍好”突遇车祸保命](https://github.com/Hongyu91/cecjy/issues/1485#issue-774839359)
+
+[上古年兽成传说 当代年兽要挣脱](https://github.com/Hongyu91/cecjy/issues/1486#issue-774839642)
+
 [慈悲传真相　只愿你平安](https://github.com/Hongyu91/cecjy/issues/1480#issue-774668823)
 
 [三退，关键时刻的选择](https://github.com/Hongyu91/cecjy/issues/1481#issue-774673822)
 
 [来自武汉的小故事](https://github.com/Hongyu91/cecjy/issues/1482#issue-774675103)
-
-[川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
-
-[沈阳市法轮功学员兰立华遗体被强行火化](https://github.com/Hongyu91/cecjy/issues/1478#issue-774297836)
-
-[二十八年的颅骨炎好了](https://github.com/Hongyu91/cecjy/issues/1479#issue-774299222)
 
 #### 主页选文（点文字阅读）
 
