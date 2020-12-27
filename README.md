@@ -23,6 +23,8 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[人间的善恶报应都不是偶然的](https://github.com/Hongyu91/cecjy/issues/1487#issue-774991431)
+
 [百名小粉红集体三退 大陆公安“忏悔”](https://github.com/Hongyu91/cecjy/issues/1484#issue-774839011)
 
 [常念“法轮大法好 真善忍好”突遇车祸保命](https://github.com/Hongyu91/cecjy/issues/1485#issue-774839359)
