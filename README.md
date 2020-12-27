@@ -59,7 +59,7 @@ https://tuidang.epochtimes.com/
 
 ##### 下载优质电子书（点文字下载）
 
-[《共产主义的终极目的》](https://github.com/Hongyu91/cecjy/files/5112143/default.zip) |
+[共产主义的终极目的](https://github.com/Hongyu91/cecjy/files/5112143/default.zip) |
 [九評共產黨](https://github.com/Hongyu91/cecjy/files/4318129/default.zip) |
 [解體黨文化](https://github.com/Hongyu91/cecjy/files/4318136/default.zip)
 
