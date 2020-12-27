@@ -14,10 +14,6 @@
 ##### 大纪元退党网站地址
 
 https://tuidang.epochtimes.com/ 
-
- #### 推荐下载手机电视：[手机安卓版《神州明见TV》](https://github.com/Hongyu91/cecjy/files/5652324/TV_2.0.2019102301.zip) (点文字下载）
-
-##### 这个视频软件节目很精彩，无需翻墙即看。
  
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
@@ -76,7 +72,6 @@ https://tuidang.epochtimes.com/
 
 ##### 下载免翻软件（点文字下载）
 
-[手机安卓版《神州明见TV》](https://github.com/Hongyu91/cecjy/files/5652324/TV_2.0.2019102301.zip) |
 [爱博电视 电脑版](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [希望之声](https://github.com/Hongyu91/cecjy/files/4496222/oHopea.zip) |
 [真识](https://github.com/Hongyu91/cecjy/files/5614322/zhenshi.zip) |
