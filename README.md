@@ -47,9 +47,16 @@ https://tuidang.epochtimes.com/
 [一个奇特却真实的故事](https://github.com/Hongyu91/cecjy/issues/1483#issue-774693573) |
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-62381122)
 
+
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
+[三退，关键时刻的选择](https://github.com/Hongyu91/cecjy/issues/1481#issue-774673822) |
+[百名小粉红集体三退 大陆公安“忏悔”](https://github.com/Hongyu91/cecjy/issues/1484#issue-774839011)
+
 [美国大选与人类命运](https://github.com/Hongyu91/cecjy/issues/1368#issue-757617281) |
+[中共渗透民主社会有多深？](https://github.com/Hongyu91/cecjy/issues/1488#issue-774992479) |
 [川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
+
+
 
 #### 点击阅读 [所有文章](https://github.com/Hongyu91/cecjy/issues)
 
