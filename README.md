@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[多少好人被中共害死？](https://github.com/Hongyu91/cecjy/issues/1490#issue-775308021)
+
+[广东中山市优秀中学校长夫妇遭中共迫害](https://github.com/Hongyu91/cecjy/issues/1491#issue-775309552)
+
+[信师信法　全家受益](https://github.com/Hongyu91/cecjy/issues/1492#issue-775310455)
+
 [人间的善恶报应都不是偶然的](https://github.com/Hongyu91/cecjy/issues/1487#issue-774991431)
 
 [中共渗透民主社会有多深？](https://github.com/Hongyu91/cecjy/issues/1488#issue-774992479)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [常念“法轮大法好 真善忍好”突遇车祸保命](https://github.com/Hongyu91/cecjy/issues/1485#issue-774839359)
 
 [上古年兽成传说 当代年兽要挣脱](https://github.com/Hongyu91/cecjy/issues/1486#issue-774839642)
-
-[慈悲传真相　只愿你平安](https://github.com/Hongyu91/cecjy/issues/1480#issue-774668823)
-
-[三退，关键时刻的选择](https://github.com/Hongyu91/cecjy/issues/1481#issue-774673822)
-
-[来自武汉的小故事](https://github.com/Hongyu91/cecjy/issues/1482#issue-774675103)
 
 #### 主页选文（点文字阅读）
 
