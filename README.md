@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[我喊“法轮大法好”唤回儿子的命](https://github.com/Hongyu91/cecjy/issues/1495#issue-775765859)
+
+[轮回记录：行疫使者与土地神转生为人](https://github.com/Hongyu91/cecjy/issues/1493#issue-775757474)
+
+[孔子说的“朝闻道，夕可死”究竟是什么意思？](https://github.com/Hongyu91/cecjy/issues/1494#issue-775760912)
+
 [多少好人被中共害死？](https://github.com/Hongyu91/cecjy/issues/1490#issue-775308021)
 
 [广东中山市优秀中学校长夫妇遭中共迫害](https://github.com/Hongyu91/cecjy/issues/1491#issue-775309552)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [中共渗透民主社会有多深？](https://github.com/Hongyu91/cecjy/issues/1488#issue-774992479)
 
 [武汉退休教师员竟红被河南警察非法拘留 ](https://github.com/Hongyu91/cecjy/issues/1489#issue-774992863)
-
-[百名小粉红集体三退 大陆公安“忏悔”](https://github.com/Hongyu91/cecjy/issues/1484#issue-774839011)
-
-[常念“法轮大法好 真善忍好”突遇车祸保命](https://github.com/Hongyu91/cecjy/issues/1485#issue-774839359)
-
-[上古年兽成传说 当代年兽要挣脱](https://github.com/Hongyu91/cecjy/issues/1486#issue-774839642)
 
 #### 主页选文（点文字阅读）
 
