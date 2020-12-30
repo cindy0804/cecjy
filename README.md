@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[我告诉社区邪党书记别当替罪羊](https://github.com/Hongyu91/cecjy/issues/1496#issue-776324361)
+
+[救人的心从未改变](https://github.com/Hongyu91/cecjy/issues/1497#issue-776325303)
+
+[农村大法弟子讲真相的两个小故事](https://github.com/Hongyu91/cecjy/issues/1498#issue-776326442)
+
 [我喊“法轮大法好”唤回儿子的命](https://github.com/Hongyu91/cecjy/issues/1495#issue-775765859)
 
 [轮回记录：行疫使者与土地神转生为人](https://github.com/Hongyu91/cecjy/issues/1493#issue-775757474)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [广东中山市优秀中学校长夫妇遭中共迫害](https://github.com/Hongyu91/cecjy/issues/1491#issue-775309552)
 
 [信师信法　全家受益](https://github.com/Hongyu91/cecjy/issues/1492#issue-775310455)
-
-[人间的善恶报应都不是偶然的](https://github.com/Hongyu91/cecjy/issues/1487#issue-774991431)
-
-[中共渗透民主社会有多深？](https://github.com/Hongyu91/cecjy/issues/1488#issue-774992479)
-
-[武汉退休教师员竟红被河南警察非法拘留 ](https://github.com/Hongyu91/cecjy/issues/1489#issue-774992863)
 
 #### 主页选文（点文字阅读）
 
