@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[法轮功创造的医学奇迹（8）](https://github.com/Hongyu91/cecjy/issues/1501#issue-776868093)
+
+[川普八项卓越施政 我们知道吗？](https://github.com/Hongyu91/cecjy/issues/1500#issue-776865893)
+
+[人生如登山](https://github.com/Hongyu91/cecjy/issues/1502#issue-776870607)
+
 [我告诉社区邪党书记别当替罪羊](https://github.com/Hongyu91/cecjy/issues/1496#issue-776324361)
 
 [救人的心从未改变](https://github.com/Hongyu91/cecjy/issues/1497#issue-776325303)
@@ -31,16 +37,10 @@ https://tuidang.epochtimes.com/
 
 [孔子说的“朝闻道，夕可死”究竟是什么意思？](https://github.com/Hongyu91/cecjy/issues/1494#issue-775760912)
 
-[多少好人被中共害死？](https://github.com/Hongyu91/cecjy/issues/1490#issue-775308021)
-
-[广东中山市优秀中学校长夫妇遭中共迫害](https://github.com/Hongyu91/cecjy/issues/1491#issue-775309552)
-
-[信师信法　全家受益](https://github.com/Hongyu91/cecjy/issues/1492#issue-775310455)
-
 #### 主页选文（点文字阅读）
 
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
-[开着修的苦与乐](https://github.com/Hongyu91/cecjy/issues/1499#issue-776353489) |
+[法轮功创造的医学奇迹（8）](https://github.com/Hongyu91/cecjy/issues/1501#issue-776868093) |
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-62381122)
 
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
