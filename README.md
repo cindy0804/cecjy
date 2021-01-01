@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[疫情期间心系众生](https://github.com/Hongyu91/cecjy/issues/1503#issue-777238609)
+
+[绝处逢生　在迫害中坚修大法](https://github.com/Hongyu91/cecjy/issues/1504#issue-777239009)
+
+[色欲是毁人的利剑](https://github.com/Hongyu91/cecjy/issues/1505#issue-777239701)
+
 [法轮功创造的医学奇迹（8）](https://github.com/Hongyu91/cecjy/issues/1501#issue-776868093)
 
 [川普八项卓越施政 我们知道吗？](https://github.com/Hongyu91/cecjy/issues/1500#issue-776865893)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [救人的心从未改变](https://github.com/Hongyu91/cecjy/issues/1497#issue-776325303)
 
 [农村大法弟子讲真相的两个小故事](https://github.com/Hongyu91/cecjy/issues/1498#issue-776326442)
-
-[我喊“法轮大法好”唤回儿子的命](https://github.com/Hongyu91/cecjy/issues/1495#issue-775765859)
-
-[轮回记录：行疫使者与土地神转生为人](https://github.com/Hongyu91/cecjy/issues/1493#issue-775757474)
-
-[孔子说的“朝闻道，夕可死”究竟是什么意思？](https://github.com/Hongyu91/cecjy/issues/1494#issue-775760912)
 
 #### 主页选文（点文字阅读）
 
