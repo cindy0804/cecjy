@@ -40,7 +40,7 @@ https://tuidang.epochtimes.com/
 #### 主页选文（点文字阅读）
 
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
-[法轮功创造的医学奇迹（8）](https://github.com/Hongyu91/cecjy/issues/1501#issue-776868093) |
+[瘟神已变招，疫苗还有用吗？](https://github.com/Hongyu91/cecjy/issues/1506#issue-777251274) |
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-62381122)
 
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
