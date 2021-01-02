@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[天津市法轮功学员刘德荣在被迫害中离世](https://github.com/Hongyu91/cecjy/issues/1507#issue-777430343)
+
+[河北盐山县庆云镇政法委书记欲勒索五万元未果](https://github.com/Hongyu91/cecjy/issues/1508#issue-777430537)
+
+[重庆法轮功学员袁志强被枉判四年半](https://github.com/Hongyu91/cecjy/issues/1509#issue-777430769)
+
 [疫情期间心系众生](https://github.com/Hongyu91/cecjy/issues/1503#issue-777238609)
 
 [绝处逢生　在迫害中坚修大法](https://github.com/Hongyu91/cecjy/issues/1504#issue-777239009)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [川普八项卓越施政 我们知道吗？](https://github.com/Hongyu91/cecjy/issues/1500#issue-776865893)
 
 [人生如登山](https://github.com/Hongyu91/cecjy/issues/1502#issue-776870607)
-
-[我告诉社区邪党书记别当替罪羊](https://github.com/Hongyu91/cecjy/issues/1496#issue-776324361)
-
-[救人的心从未改变](https://github.com/Hongyu91/cecjy/issues/1497#issue-776325303)
-
-[农村大法弟子讲真相的两个小故事](https://github.com/Hongyu91/cecjy/issues/1498#issue-776326442)
 
 #### 主页选文（点文字阅读）
 
