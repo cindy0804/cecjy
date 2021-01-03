@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[新冠病毒已发生失控性变异 如何救急？](https://github.com/Hongyu91/cecjy/issues/1512#issue-777593532)
+
+[幻日奇景 苍天示警](https://github.com/Hongyu91/cecjy/issues/1510#issue-777592410)
+
+[假借名目的实质迫害](https://github.com/Hongyu91/cecjy/issues/1511#issue-777592667)
+
 [天津市法轮功学员刘德荣在被迫害中离世](https://github.com/Hongyu91/cecjy/issues/1507#issue-777430343)
 
 [河北盐山县庆云镇政法委书记欲勒索五万元未果](https://github.com/Hongyu91/cecjy/issues/1508#issue-777430537)
@@ -31,16 +37,10 @@ https://tuidang.epochtimes.com/
 
 [色欲是毁人的利剑](https://github.com/Hongyu91/cecjy/issues/1505#issue-777239701)
 
-[法轮功创造的医学奇迹（8）](https://github.com/Hongyu91/cecjy/issues/1501#issue-776868093)
-
-[川普八项卓越施政 我们知道吗？](https://github.com/Hongyu91/cecjy/issues/1500#issue-776865893)
-
-[人生如登山](https://github.com/Hongyu91/cecjy/issues/1502#issue-776870607)
-
 #### 主页选文（点文字阅读）
 
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
-[瘟神已变招，疫苗还有用吗？](https://github.com/Hongyu91/cecjy/issues/1506#issue-777251274) |
+[新冠病毒已发生失控性变异 如何救急？](https://github.com/Hongyu91/cecjy/issues/1512#issue-777593532)|
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-62381122)
 
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
