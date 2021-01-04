@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[醒脑歌](https://github.com/Hongyu91/cecjy/issues/1513#issue-777900786)
+
+[给总理写信　吉林舒兰市女教师又被非法判三年半](https://github.com/Hongyu91/cecjy/issues/1514#issue-777910158)
+
+[南京政法委、610枉法　一级警督程兰被失踪](https://github.com/Hongyu91/cecjy/issues/1515#issue-777915535)
+
 [新冠病毒已发生失控性变异 如何救急？](https://github.com/Hongyu91/cecjy/issues/1512#issue-777593532)
 
 [幻日奇景 苍天示警](https://github.com/Hongyu91/cecjy/issues/1510#issue-777592410)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [河北盐山县庆云镇政法委书记欲勒索五万元未果](https://github.com/Hongyu91/cecjy/issues/1508#issue-777430537)
 
 [重庆法轮功学员袁志强被枉判四年半](https://github.com/Hongyu91/cecjy/issues/1509#issue-777430769)
-
-[疫情期间心系众生](https://github.com/Hongyu91/cecjy/issues/1503#issue-777238609)
-
-[绝处逢生　在迫害中坚修大法](https://github.com/Hongyu91/cecjy/issues/1504#issue-777239009)
-
-[色欲是毁人的利剑](https://github.com/Hongyu91/cecjy/issues/1505#issue-777239701)
 
 #### 主页选文（点文字阅读）
 
@@ -52,6 +52,10 @@ https://tuidang.epochtimes.com/
 [川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
 
 #### 点击阅读 [所有文章](https://github.com/Hongyu91/cecjy/issues)
+
+#### 思考文章（点文字阅读）
+
+[醒脑歌](https://github.com/Hongyu91/cecjy/issues/1513#issue-777900786)
 
 ##### 下载优质电子书（点文字下载）
 
