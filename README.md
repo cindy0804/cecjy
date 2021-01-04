@@ -51,11 +51,11 @@ https://tuidang.epochtimes.com/
 [中共渗透民主社会有多深？](https://github.com/Hongyu91/cecjy/issues/1488#issue-774992479) |
 [川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
 
-#### 点击阅读 [所有文章](https://github.com/Hongyu91/cecjy/issues)
-
 #### 思考文章（点文字阅读）
 
 [醒脑歌](https://github.com/Hongyu91/cecjy/issues/1513#issue-777900786)
+
+#### 点击阅读 [所有文章](https://github.com/Hongyu91/cecjy/issues)
 
 ##### 下载优质电子书（点文字下载）
 
