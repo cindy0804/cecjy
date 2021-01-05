@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[黑龙江省七台河市四任公安局长等人遭报案例](https://github.com/Hongyu91/cecjy/issues/1516#issue-778692969)
+
+[辽宁女教师张文卿被迫害致残、27年工龄被清零](https://github.com/Hongyu91/cecjy/issues/1517#issue-778695420)
+
+[念“法轮大法好”妹妹死里逃生](https://github.com/Hongyu91/cecjy/issues/1518#issue-778697413)
+
 [醒脑歌](https://github.com/Hongyu91/cecjy/issues/1513#issue-777900786)
 
 [给总理写信　吉林舒兰市女教师又被非法判三年半](https://github.com/Hongyu91/cecjy/issues/1514#issue-777910158)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [幻日奇景 苍天示警](https://github.com/Hongyu91/cecjy/issues/1510#issue-777592410)
 
 [假借名目的实质迫害](https://github.com/Hongyu91/cecjy/issues/1511#issue-777592667)
-
-[天津市法轮功学员刘德荣在被迫害中离世](https://github.com/Hongyu91/cecjy/issues/1507#issue-777430343)
-
-[河北盐山县庆云镇政法委书记欲勒索五万元未果](https://github.com/Hongyu91/cecjy/issues/1508#issue-777430537)
-
-[重庆法轮功学员袁志强被枉判四年半](https://github.com/Hongyu91/cecjy/issues/1509#issue-777430769)
 
 #### 主页选文（点文字阅读）
 
