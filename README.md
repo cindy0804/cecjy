@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[原中共中央610办公室主任傅政华被举报](https://github.com/Hongyu91/cecjy/issues/1519#issue-780216040)
+
+[蓬佩奥：人们看清了中共的真实面目](https://github.com/Hongyu91/cecjy/issues/1520#issue-780223518)
+
+[十四年的不治之症彻底好了](https://github.com/Hongyu91/cecjy/issues/1521#issue-780227062)
+
 [黑龙江省七台河市四任公安局长等人遭报案例](https://github.com/Hongyu91/cecjy/issues/1516#issue-778692969)
 
 [辽宁女教师张文卿被迫害致残、27年工龄被清零](https://github.com/Hongyu91/cecjy/issues/1517#issue-778695420)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [给总理写信　吉林舒兰市女教师又被非法判三年半](https://github.com/Hongyu91/cecjy/issues/1514#issue-777910158)
 
 [南京政法委、610枉法　一级警督程兰被失踪](https://github.com/Hongyu91/cecjy/issues/1515#issue-777915535)
-
-[新冠病毒已发生失控性变异 如何救急？](https://github.com/Hongyu91/cecjy/issues/1512#issue-777593532)
-
-[幻日奇景 苍天示警](https://github.com/Hongyu91/cecjy/issues/1510#issue-777592410)
-
-[假借名目的实质迫害](https://github.com/Hongyu91/cecjy/issues/1511#issue-777592667)
 
 #### 主页选文（点文字阅读）
 
