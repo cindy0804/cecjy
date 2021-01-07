@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[“九字”真言显神迹](https://github.com/Hongyu91/cecjy/issues/1522#issue-781125274)
+
+[西北师范大学退休女职工王玫又遭绑架　生死不明](https://github.com/Hongyu91/cecjy/issues/1523#issue-781129957)
+
+[曝光湖南省衡东县公安局恶警刘岳松的恶行](https://github.com/Hongyu91/cecjy/issues/1524#issue-781131439)
+
 [原中共中央610办公室主任傅政华被举报](https://github.com/Hongyu91/cecjy/issues/1519#issue-780216040)
 
 [蓬佩奥：人们看清了中共的真实面目](https://github.com/Hongyu91/cecjy/issues/1520#issue-780223518)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [辽宁女教师张文卿被迫害致残、27年工龄被清零](https://github.com/Hongyu91/cecjy/issues/1517#issue-778695420)
 
 [念“法轮大法好”妹妹死里逃生](https://github.com/Hongyu91/cecjy/issues/1518#issue-778697413)
-
-[醒脑歌](https://github.com/Hongyu91/cecjy/issues/1513#issue-777900786)
-
-[给总理写信　吉林舒兰市女教师又被非法判三年半](https://github.com/Hongyu91/cecjy/issues/1514#issue-777910158)
-
-[南京政法委、610枉法　一级警督程兰被失踪](https://github.com/Hongyu91/cecjy/issues/1515#issue-777915535)
 
 #### 主页选文（点文字阅读）
 
