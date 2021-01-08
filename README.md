@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[警察截车盘问　乘客们拒绝指认法轮功学员](https://github.com/Hongyu91/cecjy/issues/1526#issue-781915052)
+
+[真实报导　美国新闻系华裔女生打动教授](https://github.com/Hongyu91/cecjy/issues/1527#issue-781917703)
+
+[“太神奇了，感谢法轮大法师父！” ](https://github.com/Hongyu91/cecjy/issues/1528#issue-781919006)
+
 [“九字”真言显神迹](https://github.com/Hongyu91/cecjy/issues/1522#issue-781125274)
 
 [西北师范大学退休女职工王玫又遭绑架　生死不明](https://github.com/Hongyu91/cecjy/issues/1523#issue-781129957)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [蓬佩奥：人们看清了中共的真实面目](https://github.com/Hongyu91/cecjy/issues/1520#issue-780223518)
 
 [十四年的不治之症彻底好了](https://github.com/Hongyu91/cecjy/issues/1521#issue-780227062)
-
-[黑龙江省七台河市四任公安局长等人遭报案例](https://github.com/Hongyu91/cecjy/issues/1516#issue-778692969)
-
-[辽宁女教师张文卿被迫害致残、27年工龄被清零](https://github.com/Hongyu91/cecjy/issues/1517#issue-778695420)
-
-[念“法轮大法好”妹妹死里逃生](https://github.com/Hongyu91/cecjy/issues/1518#issue-778697413)
 
 #### 主页选文（点文字阅读）
 
