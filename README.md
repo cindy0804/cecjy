@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[中共戕害信仰 律师捍卫正义](https://github.com/Hongyu91/cecjy/issues/1530#issue-782584166)
+
+[中共最高法院院长周强的迫害恶行](https://github.com/Hongyu91/cecjy/issues/1531#issue-782584870)
+
+[北京市顺义区善良老太太庞秀清被迫害离世](https://github.com/Hongyu91/cecjy/issues/1532#issue-782585507)
+
 [警察截车盘问　乘客们拒绝指认法轮功学员](https://github.com/Hongyu91/cecjy/issues/1526#issue-781915052)
 
 [真实报导　美国新闻系华裔女生打动教授](https://github.com/Hongyu91/cecjy/issues/1527#issue-781917703)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [西北师范大学退休女职工王玫又遭绑架　生死不明](https://github.com/Hongyu91/cecjy/issues/1523#issue-781129957)
 
 [曝光湖南省衡东县公安局恶警刘岳松的恶行](https://github.com/Hongyu91/cecjy/issues/1524#issue-781131439)
-
-[原中共中央610办公室主任傅政华被举报](https://github.com/Hongyu91/cecjy/issues/1519#issue-780216040)
-
-[蓬佩奥：人们看清了中共的真实面目](https://github.com/Hongyu91/cecjy/issues/1520#issue-780223518)
-
-[十四年的不治之症彻底好了](https://github.com/Hongyu91/cecjy/issues/1521#issue-780227062)
 
 #### 主页选文（点文字阅读）
 
