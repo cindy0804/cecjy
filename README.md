@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[被枉判三年　退休编辑陈星伯被劫入唐山监狱](https://github.com/Hongyu91/cecjy/issues/1533#issue-782778931)
+
+[云南昆明市嵩明县迫害法轮功的官员遭恶报案例 ](https://github.com/Hongyu91/cecjy/issues/1534#issue-782779502)
+
+[转危为安、心服口服](https://github.com/Hongyu91/cecjy/issues/1535#issue-782779830)
+
 [中共戕害信仰 律师捍卫正义](https://github.com/Hongyu91/cecjy/issues/1530#issue-782584166)
 
 [中共最高法院院长周强的迫害恶行](https://github.com/Hongyu91/cecjy/issues/1531#issue-782584870)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [真实报导　美国新闻系华裔女生打动教授](https://github.com/Hongyu91/cecjy/issues/1527#issue-781917703)
 
 [“太神奇了，感谢法轮大法师父！” ](https://github.com/Hongyu91/cecjy/issues/1528#issue-781919006)
-
-[“九字”真言显神迹](https://github.com/Hongyu91/cecjy/issues/1522#issue-781125274)
-
-[西北师范大学退休女职工王玫又遭绑架　生死不明](https://github.com/Hongyu91/cecjy/issues/1523#issue-781129957)
-
-[曝光湖南省衡东县公安局恶警刘岳松的恶行](https://github.com/Hongyu91/cecjy/issues/1524#issue-781131439)
 
 #### 主页选文（点文字阅读）
 
