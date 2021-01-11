@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[公安部给法轮功的感谢信](https://github.com/Hongyu91/cecjy/issues/1536#issue-783163413)
+
+[大陆前国安局官员：我怎样能帮到你们](https://github.com/Hongyu91/cecjy/issues/1537#issue-783165616)
+
+[山东海阳市警察绑架张俊峰　暴力撬门抄家](https://github.com/Hongyu91/cecjy/issues/1538#issue-783167366)
+
 [被枉判三年　退休编辑陈星伯被劫入唐山监狱](https://github.com/Hongyu91/cecjy/issues/1533#issue-782778931)
 
 [云南昆明市嵩明县迫害法轮功的官员遭恶报案例 ](https://github.com/Hongyu91/cecjy/issues/1534#issue-782779502)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [中共最高法院院长周强的迫害恶行](https://github.com/Hongyu91/cecjy/issues/1531#issue-782584870)
 
 [北京市顺义区善良老太太庞秀清被迫害离世](https://github.com/Hongyu91/cecjy/issues/1532#issue-782585507)
-
-[警察截车盘问　乘客们拒绝指认法轮功学员](https://github.com/Hongyu91/cecjy/issues/1526#issue-781915052)
-
-[真实报导　美国新闻系华裔女生打动教授](https://github.com/Hongyu91/cecjy/issues/1527#issue-781917703)
-
-[“太神奇了，感谢法轮大法师父！” ](https://github.com/Hongyu91/cecjy/issues/1528#issue-781919006)
 
 #### 主页选文（点文字阅读）
 
@@ -52,6 +52,8 @@ https://tuidang.epochtimes.com/
 [川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
 
 #### 思考文章（点文字阅读）
+
+[大陆前国安局官员：我怎样能帮到你们](https://github.com/Hongyu91/cecjy/issues/1537#issue-783165616)
 
 [醒脑歌](https://github.com/Hongyu91/cecjy/issues/1513#issue-777900786)
 
