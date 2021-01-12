@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[北京平谷区于俊肖被绑架迫害　现双目失明](https://github.com/Hongyu91/cecjy/issues/1541#issue-784016588)
+
+[道德才是解决人间百病及各种灾难的良药、良方](https://github.com/Hongyu91/cecjy/issues/1539#issue-784011315)
+
+[蓬佩奥：中共在残酷地推行共产主义](https://github.com/Hongyu91/cecjy/issues/1540#issue-784014149)
+
 [公安部给法轮功的感谢信](https://github.com/Hongyu91/cecjy/issues/1536#issue-783163413)
 
 [大陆前国安局官员：我怎样能帮到你们](https://github.com/Hongyu91/cecjy/issues/1537#issue-783165616)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [云南昆明市嵩明县迫害法轮功的官员遭恶报案例 ](https://github.com/Hongyu91/cecjy/issues/1534#issue-782779502)
 
 [转危为安、心服口服](https://github.com/Hongyu91/cecjy/issues/1535#issue-782779830)
-
-[中共戕害信仰 律师捍卫正义](https://github.com/Hongyu91/cecjy/issues/1530#issue-782584166)
-
-[中共最高法院院长周强的迫害恶行](https://github.com/Hongyu91/cecjy/issues/1531#issue-782584870)
-
-[北京市顺义区善良老太太庞秀清被迫害离世](https://github.com/Hongyu91/cecjy/issues/1532#issue-782585507)
 
 #### 主页选文（点文字阅读）
 
