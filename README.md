@@ -53,6 +53,8 @@ https://tuidang.epochtimes.com/
 
 #### 思考文章（点文字阅读）
 
+[新冠病毒疫苗研发困境及出路之思考](https://github.com/Hongyu91/cecjy/issues/1544#issue-784887496)
+
 [一个恶人的声明和忏悔](https://github.com/Hongyu91/cecjy/issues/1545#issue-784891048)
 
 [万人“三退”名单的背后](https://github.com/Hongyu91/cecjy/issues/1543#issue-784885675)
