@@ -19,6 +19,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[曾遭十年冤狱　王君洲在天津又被非法判五年](https://github.com/Hongyu91/cecjy/issues/1542#issue-784884414)
+
+[万人“三退”名单的背后](https://github.com/Hongyu91/cecjy/issues/1543#issue-784885675)
+
+[一个恶人的声明和忏悔](https://github.com/Hongyu91/cecjy/issues/1545#issue-784891048)
+
 [北京平谷区于俊肖被绑架迫害　现双目失明](https://github.com/Hongyu91/cecjy/issues/1541#issue-784016588)
 
 [道德才是解决人间百病及各种灾难的良药、良方](https://github.com/Hongyu91/cecjy/issues/1539#issue-784011315)
@@ -30,12 +36,6 @@ https://tuidang.epochtimes.com/
 [大陆前国安局官员：我怎样能帮到你们](https://github.com/Hongyu91/cecjy/issues/1537#issue-783165616)
 
 [山东海阳市警察绑架张俊峰　暴力撬门抄家](https://github.com/Hongyu91/cecjy/issues/1538#issue-783167366)
-
-[被枉判三年　退休编辑陈星伯被劫入唐山监狱](https://github.com/Hongyu91/cecjy/issues/1533#issue-782778931)
-
-[云南昆明市嵩明县迫害法轮功的官员遭恶报案例 ](https://github.com/Hongyu91/cecjy/issues/1534#issue-782779502)
-
-[转危为安、心服口服](https://github.com/Hongyu91/cecjy/issues/1535#issue-782779830)
 
 #### 主页选文（点文字阅读）
 
@@ -52,6 +52,10 @@ https://tuidang.epochtimes.com/
 [川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
 
 #### 思考文章（点文字阅读）
+
+[一个恶人的声明和忏悔](https://github.com/Hongyu91/cecjy/issues/1545#issue-784891048)
+
+[万人“三退”名单的背后](https://github.com/Hongyu91/cecjy/issues/1543#issue-784885675)
 
 [大陆前国安局官员：我怎样能帮到你们](https://github.com/Hongyu91/cecjy/issues/1537#issue-783165616)
 
