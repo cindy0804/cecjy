@@ -23,6 +23,12 @@ https://tuidang.epochtimes.com/
 
 #### 动态文章（点文字阅读）
 
+[活摘内幕：一份沉甸甸的实名证词](https://github.com/Hongyu91/cecjy/issues/1547#issue-785792313)
+
+[难中救人　反遭中共迫害](https://github.com/Hongyu91/cecjy/issues/1548#issue-785794106)
+
+[我身边发生的奇迹](https://github.com/Hongyu91/cecjy/issues/1550#issue-785802464)
+
 [曾遭十年冤狱　王君洲在天津又被非法判五年](https://github.com/Hongyu91/cecjy/issues/1542#issue-784884414)
 
 [万人“三退”名单的背后](https://github.com/Hongyu91/cecjy/issues/1543#issue-784885675)
@@ -34,12 +40,6 @@ https://tuidang.epochtimes.com/
 [道德才是解决人间百病及各种灾难的良药、良方](https://github.com/Hongyu91/cecjy/issues/1539#issue-784011315)
 
 [蓬佩奥：中共在残酷地推行共产主义](https://github.com/Hongyu91/cecjy/issues/1540#issue-784014149)
-
-[公安部给法轮功的感谢信](https://github.com/Hongyu91/cecjy/issues/1536#issue-783163413)
-
-[大陆前国安局官员：我怎样能帮到你们](https://github.com/Hongyu91/cecjy/issues/1537#issue-783165616)
-
-[山东海阳市警察绑架张俊峰　暴力撬门抄家](https://github.com/Hongyu91/cecjy/issues/1538#issue-783167366)
 
 #### 主页选文（点文字阅读）
 
