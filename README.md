@@ -79,7 +79,7 @@ https://tuidang.epochtimes.com/
 [驚天黑幕](https://github.com/Hongyu91/cecjy/files/4318143/default.zip) |
 [江泽民其人](https://github.com/Hongyu91/cecjy/files/4318148/default.zip)
 
-#### 提示：电脑用户下载解压后一般能直接阅读电子书，手机用户要下载一个手机阅读器才能阅读电子书
+#### 提示：电脑用户下载解压后一般能直接阅读电子书，手机用户要下载一个手机阅读器才能阅读电子书。
 
 ### 点击下载安卓手机阅读器 (点文字下载）
 
