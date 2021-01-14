@@ -15,7 +15,7 @@
 
 https://tuidang.epochtimes.com/ 
 
-#### 国外用户和翻墙用户请访问《海外版浊世清莲》
+#### 国外用户和翻墙用户请访问海外版浊世清莲
 
 #### 点击访问：[海外版浊世清莲](https://github.com/Hongyu91/fqkzxy)
  
