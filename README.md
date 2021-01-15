@@ -25,6 +25,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读）
 
+[中国大陆法轮功学员被注销户口、剥夺生存权利案例](https://github.com/Hongyu91/cecjy/issues/1552#issue-786746872)
+
+[唐山市法轮功学员董建全在迫害中离世](https://github.com/Hongyu91/cecjy/issues/1539#issue-784011315)
+
+[善待大法弟子得福报](https://github.com/Hongyu91/cecjy/issues/1553#issue-786749139)
+
 [活摘内幕：一份沉甸甸的实名证词](https://github.com/Hongyu91/cecjy/issues/1547#issue-785792313)
 
 [难中救人　反遭中共迫害](https://github.com/Hongyu91/cecjy/issues/1548#issue-785794106)
@@ -36,12 +42,6 @@ https://tuidang.epochtimes.com/
 [万人“三退”名单的背后](https://github.com/Hongyu91/cecjy/issues/1543#issue-784885675)
 
 [一个恶人的声明和忏悔](https://github.com/Hongyu91/cecjy/issues/1545#issue-784891048)
-
-[北京平谷区于俊肖被绑架迫害　现双目失明](https://github.com/Hongyu91/cecjy/issues/1541#issue-784016588)
-
-[道德才是解决人间百病及各种灾难的良药、良方](https://github.com/Hongyu91/cecjy/issues/1539#issue-784011315)
-
-[蓬佩奥：中共在残酷地推行共产主义](https://github.com/Hongyu91/cecjy/issues/1540#issue-784014149)
 
 ### 主页选文（点文字阅读）
 
