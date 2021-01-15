@@ -18,6 +18,8 @@ https://tuidang.epochtimes.com/
 ### 国外用户和翻墙用户也可以访问海外版浊世清莲
 
 ### 点击访问：[海外版浊世清莲](https://github.com/Hongyu91/fqkzxy)
+
+### 躲过瘟疫有秘诀，那就是诚心敬念九字真言：“法轮大法好，真善忍好”，有空就念。
  
 ### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
