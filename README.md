@@ -25,6 +25,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读）
 
+[美国宣布制裁中共统战部长等中港官员](https://github.com/Hongyu91/cecjy/issues/1555#issue-787373436)
+
+[高中女生忧郁症痊愈、考取理想大学（外二则）](https://github.com/Hongyu91/cecjy/issues/1556#issue-787373890)
+
+[哈尔滨周家镇两名法轮功学员被迫害离世](https://github.com/Hongyu91/cecjy/issues/1557#issue-787374394)
+
 [中国大陆法轮功学员被注销户口、剥夺生存权利案例](https://github.com/Hongyu91/cecjy/issues/1552#issue-786746872)
 
 [唐山市法轮功学员董建全在迫害中离世](https://github.com/Hongyu91/cecjy/issues/1539#issue-784011315)
@@ -36,12 +42,6 @@ https://tuidang.epochtimes.com/
 [难中救人　反遭中共迫害](https://github.com/Hongyu91/cecjy/issues/1548#issue-785794106)
 
 [我身边发生的奇迹](https://github.com/Hongyu91/cecjy/issues/1550#issue-785802464)
-
-[曾遭十年冤狱　王君洲在天津又被非法判五年](https://github.com/Hongyu91/cecjy/issues/1542#issue-784884414)
-
-[万人“三退”名单的背后](https://github.com/Hongyu91/cecjy/issues/1543#issue-784885675)
-
-[一个恶人的声明和忏悔](https://github.com/Hongyu91/cecjy/issues/1545#issue-784891048)
 
 ### 主页选文（点文字阅读）
 
