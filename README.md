@@ -23,7 +23,13 @@ https://tuidang.epochtimes.com/
  
 ### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-### 动态文章（点文字阅读）
+### 动态文章（点文字阅读
+
+[大陆医生：中共一年杀掉你们十几万](https://github.com/Hongyu91/cecjy/issues/1604#issue-787657635)
+
+[陕西法轮功学员宋献兰被枉判四年半迫害离世](https://github.com/Hongyu91/cecjy/issues/1605#issue-787657956)
+
+[中共迫害信仰　崩解世道](https://github.com/Hongyu91/cecjy/issues/1606#issue-787658329)
 
 [美国宣布制裁中共统战部长等中港官员](https://github.com/Hongyu91/cecjy/issues/1555#issue-787373436)
 
@@ -36,12 +42,6 @@ https://tuidang.epochtimes.com/
 [唐山市法轮功学员董建全在迫害中离世](https://github.com/Hongyu91/cecjy/issues/1539#issue-784011315)
 
 [善待大法弟子得福报](https://github.com/Hongyu91/cecjy/issues/1553#issue-786749139)
-
-[活摘内幕：一份沉甸甸的实名证词](https://github.com/Hongyu91/cecjy/issues/1547#issue-785792313)
-
-[难中救人　反遭中共迫害](https://github.com/Hongyu91/cecjy/issues/1548#issue-785794106)
-
-[我身边发生的奇迹](https://github.com/Hongyu91/cecjy/issues/1550#issue-785802464)
 
 ### 主页选文（点文字阅读）
 
