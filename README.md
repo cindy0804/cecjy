@@ -25,6 +25,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读
 
+[认清假冒违法产品](https://github.com/Hongyu91/cecjy/issues/1608#issue-788050228)
+
+[救命 就差这层窗户纸](https://github.com/Hongyu91/cecjy/issues/1609#issue-788052423)
+
+[郭子仪遇织女](https://github.com/Hongyu91/cecjy/issues/1607#issue-788046727)
+
 [大陆医生：中共一年杀掉你们十几万](https://github.com/Hongyu91/cecjy/issues/1604#issue-787657635)
 
 [陕西法轮功学员宋献兰被枉判四年半迫害离世](https://github.com/Hongyu91/cecjy/issues/1605#issue-787657956)
@@ -36,12 +42,6 @@ https://tuidang.epochtimes.com/
 [高中女生忧郁症痊愈、考取理想大学（外二则）](https://github.com/Hongyu91/cecjy/issues/1556#issue-787373890)
 
 [哈尔滨周家镇两名法轮功学员被迫害离世](https://github.com/Hongyu91/cecjy/issues/1557#issue-787374394)
-
-[中国大陆法轮功学员被注销户口、剥夺生存权利案例](https://github.com/Hongyu91/cecjy/issues/1552#issue-786746872)
-
-[唐山市法轮功学员董建全在迫害中离世](https://github.com/Hongyu91/cecjy/issues/1539#issue-784011315)
-
-[善待大法弟子得福报](https://github.com/Hongyu91/cecjy/issues/1553#issue-786749139)
 
 ### 主页选文（点文字阅读）
 
@@ -58,6 +58,8 @@ https://tuidang.epochtimes.com/
 [川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
 
 ### 思考文章（点文字阅读）
+
+[认清假冒违法产品](https://github.com/Hongyu91/cecjy/issues/1608#issue-788050228)
 
 [大陆医生：中共一年杀掉你们十几万](https://github.com/Hongyu91/cecjy/issues/1604#issue-787657635)
 
