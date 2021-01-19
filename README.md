@@ -25,6 +25,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读
 
+[纽约布鲁克林九评真相点的故事](https://github.com/Hongyu91/cecjy/issues/1610#issue-788795546)
+
+[孙乐之：我是如何彻底认清中共本质的](https://github.com/Hongyu91/cecjy/issues/1611#issue-788797951)
+
+[为什么说瘟疫有眼？](https://github.com/Hongyu91/cecjy/issues/1612#issue-788799520)
+
 [认清假冒违法产品](https://github.com/Hongyu91/cecjy/issues/1608#issue-788050228)
 
 [救命 就差这层窗户纸](https://github.com/Hongyu91/cecjy/issues/1609#issue-788052423)
@@ -36,12 +42,6 @@ https://tuidang.epochtimes.com/
 [陕西法轮功学员宋献兰被枉判四年半迫害离世](https://github.com/Hongyu91/cecjy/issues/1605#issue-787657956)
 
 [中共迫害信仰　崩解世道](https://github.com/Hongyu91/cecjy/issues/1606#issue-787658329)
-
-[美国宣布制裁中共统战部长等中港官员](https://github.com/Hongyu91/cecjy/issues/1555#issue-787373436)
-
-[高中女生忧郁症痊愈、考取理想大学（外二则）](https://github.com/Hongyu91/cecjy/issues/1556#issue-787373890)
-
-[哈尔滨周家镇两名法轮功学员被迫害离世](https://github.com/Hongyu91/cecjy/issues/1557#issue-787374394)
 
 ### 主页选文（点文字阅读）
 
@@ -58,6 +58,10 @@ https://tuidang.epochtimes.com/
 [川普：不能容忍欺诈性选举](https://github.com/Hongyu91/cecjy/issues/1477#issue-774296705)
 
 ### 思考文章（点文字阅读）
+
+[为什么说瘟疫有眼？](https://github.com/Hongyu91/cecjy/issues/1612#issue-788799520)
+
+[孙乐之：我是如何彻底认清中共本质的](https://github.com/Hongyu91/cecjy/issues/1611#issue-788797951)
 
 [认清假冒违法产品](https://github.com/Hongyu91/cecjy/issues/1608#issue-788050228)
 
