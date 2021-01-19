@@ -6,7 +6,7 @@
 
 ### 下载翻墙软件了解国内外真实资讯及到大纪元退党网站作三退 (点文字下载）
 
-[自由门7.93版电脑版](https://github.com/Hongyu91/cecjy/files/5813257/fg793r.zip)|
+[自由门7.94版电脑版](https://github.com/Hongyu91/cecjy/files/5834475/fg794r.zip) |
 [自由门安卓版4.3](https://github.com/Hongyu91/cecjy/files/5738124/website-fgm88.1.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) |
 [无界一点通安卓版](https://github.com/Hongyu91/cecjy/files/4367851/um.zip)
