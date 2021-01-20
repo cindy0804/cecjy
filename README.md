@@ -25,6 +25,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读
 
+[内蒙官员：新年得到福音是最大的幸运](https://github.com/Hongyu91/cecjy/issues/1614#issue-789720771)
+
+[江苏连云港仲崇宾疑被洪泽湖监狱毒杀](https://github.com/Hongyu91/cecjy/issues/1615#issue-789722352)
+
+[164名中共高官的可悲下场](https://github.com/Hongyu91/cecjy/issues/1616#issue-789723668)
+
 [纽约布鲁克林九评真相点的故事](https://github.com/Hongyu91/cecjy/issues/1610#issue-788795546)
 
 [孙乐之：我是如何彻底认清中共本质的](https://github.com/Hongyu91/cecjy/issues/1611#issue-788797951)
@@ -36,12 +42,6 @@ https://tuidang.epochtimes.com/
 [救命 就差这层窗户纸](https://github.com/Hongyu91/cecjy/issues/1609#issue-788052423)
 
 [郭子仪遇织女](https://github.com/Hongyu91/cecjy/issues/1607#issue-788046727)
-
-[大陆医生：中共一年杀掉你们十几万](https://github.com/Hongyu91/cecjy/issues/1604#issue-787657635)
-
-[陕西法轮功学员宋献兰被枉判四年半迫害离世](https://github.com/Hongyu91/cecjy/issues/1605#issue-787657956)
-
-[中共迫害信仰　崩解世道](https://github.com/Hongyu91/cecjy/issues/1606#issue-787658329)
 
 ### 主页选文（点文字阅读）
 
@@ -59,6 +59,8 @@ https://tuidang.epochtimes.com/
 
 ### 思考文章（点文字阅读）
 
+[内蒙官员：新年得到福音是最大的幸运](https://github.com/Hongyu91/cecjy/issues/1614#issue-789720771)
+
 [为什么说瘟疫有眼？](https://github.com/Hongyu91/cecjy/issues/1612#issue-788799520)
 
 [孙乐之：我是如何彻底认清中共本质的](https://github.com/Hongyu91/cecjy/issues/1611#issue-788797951)
@@ -74,8 +76,6 @@ https://tuidang.epochtimes.com/
 [万人“三退”名单的背后](https://github.com/Hongyu91/cecjy/issues/1543#issue-784885675)
 
 [大陆前国安局官员：我怎样能帮到你们](https://github.com/Hongyu91/cecjy/issues/1537#issue-783165616)
-
-[醒脑歌](https://github.com/Hongyu91/cecjy/issues/1513#issue-777900786)
 
 ### 点击阅读 [所有文章](https://github.com/Hongyu91/cecjy/issues)
 
