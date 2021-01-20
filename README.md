@@ -20,6 +20,8 @@ https://tuidang.epochtimes.com/
 ### 点击访问：[海外版浊世清莲](https://github.com/Hongyu91/fqkzxy)
 
 ### 躲过瘟疫有秘诀，那就是诚心敬念九字真言：“法轮大法好，真善忍好”，有空就念。
+
+### 点击阅读：[瘟疫怕什么？](https://github.com/Hongyu91/fqkzxy/issues/48#issue-789729520)
  
 ### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
