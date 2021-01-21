@@ -27,6 +27,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读
 
+[现世酷吏周强](https://github.com/Hongyu91/cecjy/issues/1617#issue-790964827)
+
+[疫情中念“法轮大法好”全班得福报](https://github.com/Hongyu91/cecjy/issues/1618#issue-790968580)
+
+[河北省定兴县看守所所长乔元如突发重病死亡](https://github.com/Hongyu91/cecjy/issues/1619#issue-790970467)
+
 [内蒙官员：新年得到福音是最大的幸运](https://github.com/Hongyu91/cecjy/issues/1614#issue-789720771)
 
 [江苏连云港仲崇宾疑被洪泽湖监狱毒杀](https://github.com/Hongyu91/cecjy/issues/1615#issue-789722352)
@@ -38,12 +44,6 @@ https://tuidang.epochtimes.com/
 [孙乐之：我是如何彻底认清中共本质的](https://github.com/Hongyu91/cecjy/issues/1611#issue-788797951)
 
 [为什么说瘟疫有眼？](https://github.com/Hongyu91/cecjy/issues/1612#issue-788799520)
-
-[认清假冒违法产品](https://github.com/Hongyu91/cecjy/issues/1608#issue-788050228)
-
-[救命 就差这层窗户纸](https://github.com/Hongyu91/cecjy/issues/1609#issue-788052423)
-
-[郭子仪遇织女](https://github.com/Hongyu91/cecjy/issues/1607#issue-788046727)
 
 ### 主页选文（点文字阅读）
 
