@@ -27,6 +27,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读
 
+[我家的两件神奇事](https://github.com/Hongyu91/cecjy/issues/1621#issue-791971851)
+
+[王凤云在长春女子监狱遭受的残忍迫害](https://github.com/Hongyu91/cecjy/issues/1622#issue-791974044)
+
+[黑龙江佳木斯市法轮功学员王淑波被非法判刑](https://github.com/Hongyu91/cecjy/issues/1623#issue-791975436)
+
 [现世酷吏周强](https://github.com/Hongyu91/cecjy/issues/1617#issue-790964827)
 
 [疫情中念“法轮大法好”全班得福报](https://github.com/Hongyu91/cecjy/issues/1618#issue-790968580)
@@ -38,12 +44,6 @@ https://tuidang.epochtimes.com/
 [江苏连云港仲崇宾疑被洪泽湖监狱毒杀](https://github.com/Hongyu91/cecjy/issues/1615#issue-789722352)
 
 [164名中共高官的可悲下场](https://github.com/Hongyu91/cecjy/issues/1616#issue-789723668)
-
-[纽约布鲁克林九评真相点的故事](https://github.com/Hongyu91/cecjy/issues/1610#issue-788795546)
-
-[孙乐之：我是如何彻底认清中共本质的](https://github.com/Hongyu91/cecjy/issues/1611#issue-788797951)
-
-[为什么说瘟疫有眼？](https://github.com/Hongyu91/cecjy/issues/1612#issue-788799520)
 
 ### 主页选文（点文字阅读）
 
