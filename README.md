@@ -27,6 +27,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读
 
+[“天安门自焚”见证：是我们部队干的](https://github.com/Hongyu91/cecjy/issues/1624#issue-792515411)
+
+[钱学森为何拒绝反对法轮功？](https://github.com/Hongyu91/cecjy/issues/1625#issue-792515724)
+
+[小伙子含泪感恩大法师父](https://github.com/Hongyu91/cecjy/issues/1626#issue-792516003)
+
 [我家的两件神奇事](https://github.com/Hongyu91/cecjy/issues/1621#issue-791971851)
 
 [王凤云在长春女子监狱遭受的残忍迫害](https://github.com/Hongyu91/cecjy/issues/1622#issue-791974044)
@@ -38,12 +44,6 @@ https://tuidang.epochtimes.com/
 [疫情中念“法轮大法好”全班得福报](https://github.com/Hongyu91/cecjy/issues/1618#issue-790968580)
 
 [河北省定兴县看守所所长乔元如突发重病死亡](https://github.com/Hongyu91/cecjy/issues/1619#issue-790970467)
-
-[内蒙官员：新年得到福音是最大的幸运](https://github.com/Hongyu91/cecjy/issues/1614#issue-789720771)
-
-[江苏连云港仲崇宾疑被洪泽湖监狱毒杀](https://github.com/Hongyu91/cecjy/issues/1615#issue-789722352)
-
-[164名中共高官的可悲下场](https://github.com/Hongyu91/cecjy/issues/1616#issue-789723668)
 
 ### 主页选文（点文字阅读）
 
