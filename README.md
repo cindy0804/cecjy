@@ -27,6 +27,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读
 
+[瘟疫中逃生的秘诀](https://github.com/Hongyu91/cecjy/issues/1627#issue-792778794)
+
+[目击者：让我来告诉你天安门自焚内幕吧](https://github.com/Hongyu91/cecjy/issues/1628#issue-792779218)
+
+[“清零”突显中共逼迫民众放弃信仰](https://github.com/Hongyu91/cecjy/issues/1629#issue-792779703)
+
 [“天安门自焚”见证：是我们部队干的](https://github.com/Hongyu91/cecjy/issues/1624#issue-792515411)
 
 [钱学森为何拒绝反对法轮功？](https://github.com/Hongyu91/cecjy/issues/1625#issue-792515724)
@@ -38,12 +44,6 @@ https://tuidang.epochtimes.com/
 [王凤云在长春女子监狱遭受的残忍迫害](https://github.com/Hongyu91/cecjy/issues/1622#issue-791974044)
 
 [黑龙江佳木斯市法轮功学员王淑波被非法判刑](https://github.com/Hongyu91/cecjy/issues/1623#issue-791975436)
-
-[现世酷吏周强](https://github.com/Hongyu91/cecjy/issues/1617#issue-790964827)
-
-[疫情中念“法轮大法好”全班得福报](https://github.com/Hongyu91/cecjy/issues/1618#issue-790968580)
-
-[河北省定兴县看守所所长乔元如突发重病死亡](https://github.com/Hongyu91/cecjy/issues/1619#issue-790970467)
 
 ### 主页选文（点文字阅读）
 
