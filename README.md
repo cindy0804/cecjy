@@ -27,6 +27,12 @@ https://tuidang.epochtimes.com/
 
 ### 动态文章（点文字阅读
 
+[“我不再害怕瘟疫了”](https://github.com/Hongyu91/cecjy/issues/1630#issue-793314031)
+
+[老二叔：我现在天天念“法轮大法好”](https://github.com/Hongyu91/cecjy/issues/1622#issue-791974044)
+
+[吉林省榆树市公安局局长俞申被举报](https://github.com/Hongyu91/cecjy/issues/1632#issue-793317523)
+
 [瘟疫中逃生的秘诀](https://github.com/Hongyu91/cecjy/issues/1627#issue-792778794)
 
 [目击者：让我来告诉你天安门自焚内幕吧](https://github.com/Hongyu91/cecjy/issues/1628#issue-792779218)
@@ -38,12 +44,6 @@ https://tuidang.epochtimes.com/
 [钱学森为何拒绝反对法轮功？](https://github.com/Hongyu91/cecjy/issues/1625#issue-792515724)
 
 [小伙子含泪感恩大法师父](https://github.com/Hongyu91/cecjy/issues/1626#issue-792516003)
-
-[我家的两件神奇事](https://github.com/Hongyu91/cecjy/issues/1621#issue-791971851)
-
-[王凤云在长春女子监狱遭受的残忍迫害](https://github.com/Hongyu91/cecjy/issues/1622#issue-791974044)
-
-[黑龙江佳木斯市法轮功学员王淑波被非法判刑](https://github.com/Hongyu91/cecjy/issues/1623#issue-791975436)
 
 ### 主页选文（点文字阅读）
 
